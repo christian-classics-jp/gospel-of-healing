@@ -1,4 +1,4 @@
-# 神癒の福音 | Ａ・Ｂ・シンプソン
+# Ａ・Ｂ・シンプソン『神癒の福音』
 
 + [原文PDF](https://www.cmalliance.org/resources/archives/downloads/simpson/the-gospel-of-healing.pdf)
 

@@ -1,5 +1,6 @@
 CHAPTER I. THE SCRIPTURAL FOUNDATION.
 # 第一章 聖書的土台
+
 Man has a two-fold nature. He is both a material and a spiritual being. And both natures have been equally affected by the fall. His body is exposed to disease; his soul is corrupted by sin. We would therefore expect that any complete scheme of redemption would include both natures, and provide for the restoration of his physical as well as the renovation of his spiritual life. Nor are we disappointed.
 人間は二重の性質からなっています。人間は物質的な存在であり、また霊的な存在でもあります。両性質は堕落によって等しく影響を受けました。肉体は病におかされ、魂は罪で腐敗しました。それゆえ、贖いの完全な理念は両性質を含む、つまり贖いは霊的ないのちの刷新だけでなく、肉体的ないのちの回復も与えるものであると期待してよいでしょう。もちろんその期待は失望に終わりません。
 
@@ -210,7 +211,6 @@ We turn with deep interest to ？？？
 > あなたがたのうちに病気の人がいますか。その人は教会の長老たちを招き、主の御名によって、オリ―ブ油を塗って祈ってもらいなさい。信仰による祈りは、病む人を回復させます。主はその人を立たせてくださいます。また、もしその人が罪を犯していたなら、その罪は赦されます。
 
 Now, let us notice first who gives this commission. It is James, the President of the Apostolic Board; the presiding officer of the Mother Church at Jerusalem;
-
 まずはじめに、このいましめを誰が書いたかに注目しましょう。使徒会議の長であったヤコブです。彼はエルサレムの母教会を指導していました。
 the one who had authority to say, in summing up the decrees of the Council at Jerusalem （Acts xv. 19）, "My sentence is;"
 エルサレムの会議で決定を取りまとめるために「私の判断では」と言う権威のある人物でした（使徒15:19）。
@@ -224,7 +224,7 @@ Again, notice the time at which this commission is given. Not at the beginning, 
 さらに、このいましめが与えられた時点がいつなのかに注意しましょう。使徒時代のはじめではなく、終わりです。使徒の世代ではなく、次の来るべきすべての世代のために書かれました。
 For, indeed, these New Testament epistles were not widely circulated in their own age, but were mainly designed "for our admonition on whom the ends of the world are come."
 というのも、実際、これら新約聖書の書簡は、書かれた当時に広く読まれたのではなく、「世の終わりに臨んでいる私たちへの教訓とするため」（第一コリント10:11）におもに書かれました。
-です。 Again, observe the nature of the ordinance enjoined--the prayer of faith, and the anointing with oil in the name of the Lord.
+Again, observe the nature of the ordinance enjoined--the prayer of faith, and the anointing with oil in the name of the Lord.
 また、このいましめで課された命令の性質に注目しましょう。信仰の祈りと、主の御名によって油を塗ることです。
 Now, this was manifestly not a medical anointing, for it was not to be applied by a physician, but by an elder, and must, naturally, be the same anointing of which we read, Mark vi. 13, and elsewhere, in connection with the healing of disease by the Apostles themselves.
 ここで、油を塗ることは明らかに医療行為ではありません。医者ではなく長老たちに命じているのですから。また自然な解釈として、これはマルコ6:13等の塗油と同じで間違いありません。使徒たち自身が行った病気の癒しのための塗油と結びついています。
@@ -263,10 +263,9 @@ But, as we do, we must not forget that our health will be even as our soul prosp
 > 私たちはキリストのからだの部分だからです。
 
 These words recognize a union between our body and the risen body of the Lord Jesus Christ, which gives us the right to claim for our mortal frame all the vital energy of His perfect life. His body is ours. His life is ours, and it is all sufficient.
-
 このことばは、私たちのからだと主イエス・キリストの復活のからだと間の結合を認識しています。この結合ゆえに、私たちの朽ちる器に対して主の完全ないのちの生ける御力が注がれることを要求する権利が、私たちにはあるのです。主のみからだは私たちのものです。主のいのちは私たちのものです。それで十分です。
-Rom. viii. 11. "If the Spirit of Him that raised up Jesus from the dead dwell in you, He that raised up Christ from the dead shall also quicken your mortal body by His Spirit that dwelleth in you."
 
+Rom. viii. 11. "If the Spirit of Him that raised up Jesus from the dead dwell in you, He that raised up Christ from the dead shall also quicken your mortal body by His Spirit that dwelleth in you."
 【十三】　ロ―マ8:11
 
 > もしイエスを死者の中からよみがえらせた方の御霊が、あなたがたのうちに住んでおられるなら、キリスト・イエスを死者の中からよみがえらせた方は、あなたがたのうちに住んでおられる御霊によって、あなたがたの死ぬべきからだをも生かしてくださるのです。
@@ -281,6 +280,7 @@ It was the Spirit of God that wrought all the miracles of Jesus Christ on earth.
 イエス・キリストが地上で行われたすべての奇跡は、神の御霊がなさったことでした（マタイ12:28）。
 Matt. xii. 28. And if we have the same Spirit dwelling in us we shall experience the same works.
 そして、私たちが内側に同じ御霊の内住をいただくなら、同じ働きを行うことができます。
+
 II Cor. iv. 10, 11. "Always bearing about in the body the dying of the Lord Jesus, that the life also of Jesus might be manifested in our mortal flesh. For we which live are always delivered unto death for Jesus' sake, that the life also of Jesus might be made manifest in our mortal body. "
 【十四】　第二コリント4:10-11
 

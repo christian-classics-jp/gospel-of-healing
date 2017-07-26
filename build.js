@@ -21,9 +21,17 @@ for (let dir of dirs) {
     continue
   }
   let jaSentences = texts.filter(
-    (text, i) => !/^[a-zA-Z0-9]/.test(text)
+    (text, i) => !/^[a-zA-Z0-9"]/.test(text)
   ).map(
-    (text) => text + '\n'
+    (text) => {
+      if (text === '') {
+        return '\n\n'
+      }
+      if (/^[1-9+*->#]/.test(text)) {
+        return text + '\n'
+      }
+      return text
+    }
   )
   let ja = jaSentences.join('')
   fs.writeFileSync(jaPath, ja)
