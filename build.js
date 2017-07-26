@@ -21,7 +21,7 @@ for (let dir of dirs) {
     continue
   }
   let jaSentences = texts.filter(
-    (text, i) => !/^[a-zA-Z]/.test(text)
+    (text, i) => !/^[a-zA-Z0-9]/.test(text)
   ).map(
     (text) => text + '\n'
   )
