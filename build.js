@@ -7,8 +7,8 @@ const { join } = require('path')
 
 process.chdir(join(__dirname))
 
-let dirs = fs.readdirSync('src')
-// let dirs = ['chapter-02']
+// let dirs = fs.readdirSync('src')
+let dirs = ['chapter-03']
 for (let dir of dirs) {
   let srcPath = `src/${dir}/both.md`
   let jaPath = `src/${dir}/jp.md`
