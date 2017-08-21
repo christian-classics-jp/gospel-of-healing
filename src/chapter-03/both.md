@@ -190,4 +190,14 @@ Trophimus, doubtless, was also, although it must have been delayed. Healing, eve
 There are still cases of failure, but they may be accounted for, perhaps through defective knowledge or unbelief, disobedience to God in some way, failure to follow consistently the teachings of the Word and the Spirit or for a deeper spiritual discipline. And there are failures in the spiritual life, from the same or similar causes,-which in no way disprove the reality of the Divine promises or the sufficiency of Christ's grace. "Let God then be true," even if "every man" be "a liar."
 癒しの失敗は現在でもありますが、説明可能です。知識が欠けていたり、信仰がなかったり、ある点で神に従っていなかったり、みことばや御霊の教えに継続して従うことができていなかったり、あるいはより深い霊的修練のためかもしれません。霊的生活にも同じ（あるいは似たような）理由から失敗はあります。それはいかなる意味でも神の約束の現実性やキリストの恵みの完全性に対する反証になりえません。「たとい、すべての人を偽り者としても、神は真実な方であるとすべきです。」（ローマ3:4）
 
-8 But we are told, if these things be so, people should never die. Why not? Why should faith go farther than the Word? Anything beyond that is presumption. The Word places a limit to human life, and all that Scriptural faith can claim is sufficiency of health and strength for our life-work and within its fair limits. It may be longer or shorter, but it need not, like the wicked, fail to live out half its days. It should be complete, satisfying, and as long as the work of life is yet undone. And then, when the close comes, why need it be with painful and depressing sickness, as the rotten apple falls in June from disease, and with a worm at the root? Why may it not be rather as that ripe apple would drop in September, mature, mellow, and ready to fall without a struggle into the gardener's hand? So Job pictures the close of a good man's life as the full maturity of "the shock of corn that cometh in its season."
+8 But we are told, if these things be so, people should never die.
+【八】　もし神癒が正しいとしたら、人は死ななくなるはずではないか。
+
+Why not? Why should faith go farther than the Word? Anything beyond that is presumption.
+そうでしょうか。どうしてみことば以上のことを信じなければならないのでしょうか。みことばを超えるものはすべて憶測です。
+The Word places a limit to human life, and all that Scriptural faith can claim is sufficiency of health and strength for our life-work and within its fair limits.
+みことばは人間のいのちに限界を定めました。聖書的な信仰が主張しうるのは、その正当な限界の範囲内で私たちが生き、働くために十分な健康と強さを得られるということです。
+It may be longer or shorter, but it need not, like the wicked, fail to live out half its days. It should be complete, satisfying, and as long as the work of life is yet undone. And then, when the close comes, why need it be with painful and depressing sickness, as the rotten apple falls in June from disease, and with a worm at the root?
+生涯は長いかもしれませんし、短いかもしれませんが、悪人の人生とは違って、満たすべき日々の半ばで絶える必要はありません。それは完全で、満足のいくものであるはずで、人生の働きが完了しないうちに途絶えるようなものではありません。それから、生涯の終わりが来るときに、六月に病気のりんごが腐っておちるように、あるいは根が虫に食われて枯れるように、病気にかかって失意と痛みの中で死んでいく必要がどうしてあるのでしょうか。
+Why may it not be rather as that ripe apple would drop in September, mature, mellow, and ready to fall without a struggle into the gardener's hand? So Job pictures the close of a good man's life as the full maturity of "the shock of corn that cometh in its season."
+九月になってりんごが成熟し、甘くなり、難なく収穫者の手に落ちる準備が整ってから落ちるように、人生の終わりもそうなってはいけないのでしょうか。ヨブは正しい人の生涯の終わりを、こうたとえています。「あたかも麦束がその時期に収められるように」（ヨブ5:26）。
