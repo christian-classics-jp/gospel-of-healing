@@ -50,12 +50,127 @@ The Age of Miracles is not past. The Word of God never indicated a hint of such 
 奇跡の時代は過去ではありません。神のことばはそのようなことをほのめかしてさえいません。反対に、奇跡は終わりの日のしるしであると述べています。本当の敵は、偽物の奇跡です。悪霊の奇跡を起こして、地上の王たちに送ることです。偽物の奇跡に対する唯一の対抗策は、本物の奇跡です。私たちが身を置いているのは、奇跡の時代、キリストの時代、キリストの二度の降臨の間にある時代、絶えざる神の臨在の時代、力の時代、他のどの時代にもまさって激しく力が活発な時代です。
 
 2 The same results as are claimed for faith in the healing of disease are also said to follow the practices of Spiritualism, Animal Magnetism, Clairvoyance, etc. We will not deny that while some of the manifestations of Spiritualism are undoubted frauds, there are many that are unquestionably supernatural, and are produced by forces for which Physical Science has no explanation.
-【二】　スピリチュアリズム、動物磁気、透視などの実践によっても神癒の信仰と同じ結果が、得られると言われている。
+【二】　スピリチュアリズム、動物磁気、透視などの実践によっても神癒の信仰と同じ結果が得られると言われている。
 
-スピリチュアリズムの現象のいくつかは明らかな詐欺である一方で、科学で説明しようのない力によって生じた疑いなく超自然的な現象が多く存在することは否定しません。
+スピリチュアリズムの現象のいくつかは明らかな詐欺である一方で、科学で説明しようのない力によって生じた疑いなく超自然的な現象が多く存在することは否めません。
 It is no use to try to meet this terrific monster of SPIRITUALISM in which, as Joseph Cook says, is, perhaps, the great IF of our immediate future in England and America, with the hasty and shallow denial of the facts, of their explanation as tricks of legerdemain.
-「スピリチュアリズム」という恐るべき怪物に出会おうとしても無駄です。ジョセフ・クックが言ったように、もしかするとイギリスとアメリカで近い将来、その現象をよく検討せずに浅はかに否定し、手品かごまかしだと言って取り合わない人たちが取り込まれるかもしれません。
+「スピリチュアリズム」という恐るべき怪物に出会おうとしても無駄です。ジョセフ・クックが言ったように、もしかするとイギリスとアメリカで近い将来、その現象をよく検討せずに浅はかに否定し、手品だごまかしだと言って取り合わない人たちがスピリチュアリズムに取り込まれるかもしれません。
 They are often undoubtedly real and superhuman. They are "the spirits of devils working miracles," gathering men for Armageddon. They are the revived forces of the Egyptian magicians, the Grecian oracles, the Roman haruspices, the Indian medicine-men.
 スピリチュアリズムで起きる現象はしばしば疑いようなく現実で、人間の力を超えています。それはハルマゲドンのために人々を集める「奇跡を働く悪霊」です。彼らはエジプトの魔術師やギリシヤの神託、ローマの腸ト師、インドのまじない師の力の再来です。
 They are not divine, they are less than omnipotent, but they are more than human. Our Lord has expressly warned us of them, and told us to test them, not by their power, but by their fruits, their holiness, humility, and homage to the name of Jesus and the Word of God; and their very existence renders it the more imperative that we should be able to present against them--like the rod of Moses which swallowed the magicians, and at last silenced their limited power--the living forces of a holy Christianity in the physical as well as the spiritual world.
-神から来たものではなく、全能ではないものの、人間以上の力を持っています。私たちの主はそれについてはっきりと警告し、その力ではなく、その結ぶ実、聖さ、謙遜、イエスの御名と神のことばに従うかどうかによって判別しなさいと命じておられます。彼らが存在するからこそ、対抗して私たちが霊的な世界だけでなく物理的な世界においても聖なるキリスト教の生ける力を示すべきであるという命令がますます厳粛になるのです――モーセの杖が魔術師の杖を飲み込み、彼らの卑小な力を黙らせたように。
+神から来たものではありませんし、全能でもないものの、人間以上の力を持っています。私たちの主はそれについてはっきりと警告し、その力ではなく、その結ぶ実、聖さ、謙遜、イエスの御名と神のことばに従うかどうかによって判別しなさいと命じておられます。彼らが存在するからこそ、対抗して私たちが霊的な世界だけでなく物理的な世界においても、聖なるキリスト教の生ける力を示すべきであるという命令がますます厳粛になるのです――モーセの杖が魔術師の杖を飲み込み、彼らの卑小な力を黙らせたように。
+
+3
+The miracles  of  Christ  and His  Apostles  were  designed to establish the Facts  and Doctrines  of  Christianity;  we  do not need their  continuance.
+【三】　キリストと使徒の奇跡はキリスト教の事実と教理を確立するために計画されたものであるため、継続して起こる必要はない。
+
+Why,  then,  do  the critics  call  in  question  the existence of  these  facts  and the credibility  of  these writings?  How are  the inhabitants  of  new countries  to  know  the divinity  of  these oracles?
+それならどうして批判者は、福音書に書かれた事実の存在やその信頼性に疑問を投げかけるのでしょうか。新しく宣教された国の人々は、どのようにしてこの福音が神からのものであると知るのでしょうか。
+What  access  have they,  or  indeed the great  masses  of  men  everywhere,  to the archives  of  learning,  or  the manuscripts  of  the Bible?
+全世界の非常に多くの人々に、どうしたら知恵の記録である聖書を届けることができるのでしょうか。
+Nay,  every  generation needs  a  living Christ,  and every  new community  needs  "these  signs  following," to confirm  the word.
+無謀です。あらゆる世代の人々が生けるキリストを必要としており、あらゆる新しい共同体が「これらのしるしが伴う」というみことばの確証を必要としています。
+And we have  sometimes  seen  the plausible and persistent Agnostic,  whom  no  reason  could satisfy,  silenced  and confounded when  brought face-to-face with  some  humble,  illiterate  woman,  as  she told  him  with  glowing honesty,  which  he  felt  in  the depths  of  his  heart,  that  she had been  raised up from lifelong  helplessness  by  the  word  and  name  of  Jesus only.
+また、理性を振り回して引き下がらない不可知論者が、どんな説得にも満足しないとしても、腰の低い読み書きもできないひとりの女性と直接出会い、私は長年寝たきりでしたがイエスのことばと御名だけによって起き上がりましたと飾り気なく言われたときに、深く心動かされ、うろたえて黙り込むといったことを私たちはときどき経験してきました。
+Until  he  comes again the world will  never  cease  to  need  the touch  of  His  Power  and Presence,  "God also  bearing them  witness  both  with  signs  and wonders,  and gifts  of  the Holy Spirit  according to  His  own  will."
+主が再び来られるときまで、世界は神の御力と臨在に触れていただくことを必要としています。不要にははなりません。「そのうえ神も、しるしと不思議とさまざまの力あるわざにより、また、みこころに従って聖霊が分け与えてくださる賜物によってあかしされました。」(ヘブル2:4)
+There  is  also  a current  misapprehension  about  the  full  design  of  Christ's  miracles which  takes  away  one-half  their  beauty  and value.  They  are  looked upon  solely and  mainly  as  special  testimonies  to  Christ's  power and  divinity.
+また、キリストが行われた数々の奇跡の目的について、その美と価値とを半減させるような誤解がはびこっています。奇跡は、キリストの御力と神性とを特別に証するものとだけ理解されています。
+But  if  this  had been  all,  a  few  special  and  marked  cases  would  have  been  sufficient.  He  would not  then  have  healed  the  thousands  who  daily thronged  Him.
+しかし、もしそれがすべてであったなら、ほんの数回の顕著なしるしが起きれば十分なはずです。キリストは日々押しかけてくる数千の群衆をお癒しにならなくてもよかったでしょう。
+But  we  are  told,  on the contrary,  that  they  were  not  isolated and occasional,  but  numerous  and almost universal.
+けれども、私たちが伝えられているのは反対に、奇跡が起きたのは一回きりとか時たまとかではなく、非常に多く、ほとんどいつでもどこででも起きたということです。
+"He healed all  that  had need of  healing,  and all  that  were  sick and,  not so  much  as  a  proof  of  His  power,  as  to  show  that  which  He  now  wished  them  to know-His  boundless  love-to fulfill  the ancient  prophetic  picture  of  the blessed Christ,  and  that  it  might be  fulfilled  that  was  spoken  by  the  prophet  Esaias, "Himself took  our infirmities,  and  bare  our sicknesses."
+「キリストは癒しの必要な者みなを、病気の者みなをお癒しになった。」キリストの御力を証明するためだけでなく、その限りない愛をすべての人が知ってもらいたいと願われていることを示すため、また昔の預言者が恵み深いキリストについて預言したことが成就するためでもあります。預言者イザヤが「彼は私たちの病を負い、私たちの痛みをになった」と話したことばが成就するためです。
+But  if  it  was  necessary  for Him to  fulfill  that  character  then,  it  is  as  much  so  still;  as  necessary  yet  that  He should  never  cease to  be  true  to  the picture God  drew of  Him,  which  He drew of Himself.
+しかし、もし福音書の時代にキリストのご人格を実現することが必要であったなら、今もなおさらそうです。神が描写したキリスト像、つまりご自分が描かれたキリスト像に真実であることを決してやめるわけにはいかないからです。
+If  this  be  not  true  still  for us,  then  "Jesus  Christ  is"  NOT  "the  Same, yesterday,  to-day,  and  forever."  If  this  be  not  still true  for  us,  then-perhaps-the other  promises  of  the Scripture are not  also  true for  us,  and He has  not  borne  our sins  any  more  than  our  sickness  and suffering.
+もしこれが今の私たちにとって真実でないなら、「イエス・キリストは、きのうも、きょうも、いつまでも同じ」では**ありません**。こしこれが今の私たちにとって真実でないなら、おそらく、聖書の他の約束も、私たちに真実ではありません。キリストは私たちの病と苦しみを背負わなかったように、私たちの罪を負ってくださいません。
+Nay,  "His  heart  is  still  the same:-   Kinsman,  Friend  and  Elder Brother,   Is  His  everlasting  name;   Thou  art  All  in  All  to  me,   Living  One  of  Bethany."
+そんなことは不合理です。
+
+「キリストの心は今も同じです。
+
+同国人、友、長子。
+
+それが彼の永遠の名。
+
+あなたは私にとっていっさいの中にあるいっさいです。
+
+ベタニアの生けるお方。」
+
+----
+
+4
+A common  objection  is  urged  in  this  way:-Christ's  last  promise  in  Mark  embraces much  more  than  healing;  but  if  you  claim  one,  you  must  claim  all.
+【四】　次のような反論がいつもなされます。マルコの福音書にあるキリストの最後の約束は、癒しだけでなく他の事柄も含んでいる。一つを取り上げるなら、他のすべても取り上げなければならない、と。
+
+If  you  expect the healing of  the sick,  you  must  also  include the gift  of  tongues  and the power  to overcome  malignant  poisons;  and  if  the gift  of  tongues  has  ceased,  so  in  the same way  has  the power  over  disease.
+もし病気の癒しを期待するなら、異言の賜物も毒を克服する力も期待しなくてはならないし、もし異言の賜物がやんでしまったのなら、病気を癒す力も同じくやんだのだ、というわけです。
+We  cheerfully  accept  the severe  logic,  we cannot afford  to  give  up one of  the promises.
+私たちはこの厳粛な論理を喜んで受け入れます。いくつもある約束の一つでも諦めることはできません。
+We  admit  our  belief  in  the presence of  the Healer  in  all  the charismata  of  the Pentecostal  Church.
+私たちはペンテコステ派の教会のさまざまな霊的賜物のうち、癒し主の臨在を認めています。
+We  see no  reason  why  an humble  servant  of  Christ,  engaged  in the  Master's  work,  may  not  claim  in  simple faith  the power  to resist  malaria and other  poisons  and  malignant  dangers;
+キリストの卑しいしもべが、主のみわざに従事しながら、単純な信仰をもって感染症や毒や危険に対抗する力を求めてはならない道理はありません。
+and we believe the gift  of  tongues  was  only  withdrawn  from  the early  Church  as  it  was abused  for  vain  display,  or  as  it  became  unnecessary  for  practical  use,  through  the rapid evangelization  of  the world;
+異言の賜物については、むなしく誇示するために乱用されたため、あるいは福音が急速に世界に広がる上での実際的な必要がなくなったために、初期の教会以後は与えられていないと私たちは信じています。
+and  it  will  be  repeated as  soon  as  the Church will  humbly  claim  it  for  the universal  diffusion  of  the Gospel.  Indeed,  instances are  not  wanting  now  of  its  apparent  restoration  in  missionary  labors,  both  in India and Africa.
+教会が福音を全世界に広げるために必要であるとしてへりくだって求めるなら、異言の賜物もすぐさま再興するでしょう。実際、インドやアフリカで働く宣教者の間では、異言の賜物が顕著に現された例は枚挙にいとまがありません。
+
+5
+Perhaps  no  objection  is  more  strongly  urged than  the glory  that  redounds  to God from  our  submission  to  His will  in  sickness,  and  the  happy  results of  sanctified affliction.
+【五】　おそらく最も説得力ある反論は、病気の中で神のみこころに従うことによって神の栄光が現され、聖なる苦しみを味わうことで幸福になる、というものです。
+
+Well,  if  those who  urge  and claim  to  practice this  suggestion  would really  accept  their  sickness,  and  lie passive under  it,  they  would at  least  be consistent.
+さて、もしこの言明を実践するように勧める人が、自分が病気になったときにそれを本当に受け入れ、病気をそのままにしておくとすれば、少なくとも一貫性はあります。
+But  do  they  not  send  for  a  doctor,  and  do  their  best  to  get  out  of  this sweet  will  of  God?
+しかし、そういう人は医者を呼んだりといった、この素晴らしい神のみこころからみすみす抜け出すような努力はしないのでしょうか。
+Is  this  meekly  submitting  to  the affliction,  and does  not  the submission  usually  come  when  the result  is  known  to  be  inevitable?
+これは苦しみにおとなしく従うことでしょうか。必然的に訪れる結果がわかっているときに、従順というものは来ない？？のでしょうか。
+We  do  not deny  the happy  results  of  many  a case of  painful  sickness  in  turning the soul  from some  forbidden  path  and  leading  it  into  deeper  experiences  of  God;
+痛ましい病気の中で魂が禁じられた道から立ち返らされ、神と深く出会う体験へと導かれるという幸福な結果があることを否定してはいません。
+nor  do  we question  the deep and  fervent  piety,  and spiritual  advancement  of  many  an  invalid who  cannot  trust  God for  healing;
+また、癒しの点で神を信頼できない多くの病弱な人々は、深く熱心な敬虔さを持たず霊的な成長がないのではないかと疑っているのでもありません。
+but  we  are sure  there  is  an  immense  amount  of vague and unscriptural  misunderstanding with'  respect  to  the principles  of Christian discipline.
+そうではなく、クリスチャンとしての成長の原理に関して、非常に多くの曖昧で非聖書的な誤解が確かにある、と申し上げています。
+We  do  not  believe  that  God  chastens  an  obedient  child simply  to  make  it  good.
+神は従順な子供に対して単に良くするためだけに懲らしめる、と私たちは信じていません。
+ "For  this  cause  many  are  weak and sickly  among  you,  and many  sleep;  for  if  we would  judge ourselves  we should  not  be  judged."
+「そのために、あなたがたの中に、弱い者や病人が多くなり、死んだ者が大ぜいいます。しかし、もし私たちが自分をさばくなら、さばかれることはありません。」(第二コリント11:30-31)
+Here  is  a definite  and unchangeable  law of  God's  dealings  with  His  dear  children.  When  we are judging ourselves  we shall  not be  judged.  While we hearken  and obey,  He "will  put  none  of  these diseases  upon  us  which  He brought  upon  the Egyptians."
+ここに神がその愛する子供たちを取り扱う明確な不変の法則があります。私たちが自分を裁くなら、私たちは裁かれません。私たちが聞き従うなら、「わたしはエジプトに下したような病気を何一つあなたの上に下さない。」(出エジプト15:26)
+His  normal  state  for  His  faithful  children  is  soundness of  body,  soul  and  spirit  (I Thess.  v.  23).  His  own  prayer  for  them  is  that  they  may  be  in  health  and prosper even  as  their  souls  prospereth.
+神が子供たちに語る標準的なことばは、体、魂、霊が健やかであれ、です(第一テサロニケ5:23)。神が子供たちに祈るのは、魂に幸いを得ているように、健康でもありますように、です。
+His  will  for  them  is  to  act  in  these things  according to His  word.  It  is  ever  "the  good pleasure  of  His  goodness,"  and "that  good  and perfect  and acceptable will  of  God."
+神が子供たちに願うのは、神のことばのとおりに生きることです。神のことばはつねに「神の善を喜ぶ」(第二テサロニケ1:11、KJV)こと、「神のみこころは何か、すなわち、何が良いことで、神に受け入れられ、完全であるのか」(ローマ12:2)を知ることです。
+ "Many,"  it  is  true,  "are  the afflictions  of  the righteous;"  but it  is  also  true  that  "the  Lord  delivereth  him  out  of  them  all.  He keepeth all  his  bones:  not  one  of  them  is  brqken."
+「正しい者の悩み(苦しみ:KVJ)は多い」のは真実です。しかしまた「主はそのすべてから彼を救い出される。主は、彼の骨をことごとく守り、 その一つさえ、砕かれることはない」もまた真実です(詩篇34:19-20)。
+And  between  "affliction"  and sickness  it  must  be  well  remembered there  is  a  very  clear  distinction.
+そして「苦しみ」と病気の間には、明白な区別があることはよく覚えられなければなりません。
+At  Marah, the children  of  Israel  had to  drink of  bitter  water,  and  it  was  only  sweetened,  not removed;  as  many  a trial  is  sanctified and blessed.
+マラにて、イスラエルの子らが苦い水を飲まなければならず、それは取り除かれたのではなく甘くされただけでした。同数の？？試練は聖化され祝福される？？
+But  it  was  right  there  that  He made a statute  and an  ordinance of  healing,  and told  them  that  if  they  would obey Him,  they  should not  be  sick,  and He would  be  their  constant  Healer,  thus showing  them  that  Marah  was not  sickness.
+けれども、まさにその場所で、神は癒しのために像を造らせ、布告を行いました。もし彼らが神に従うなら、病気にならず、神が常に癒し主となる、と。この事実は、マサのあれは病気ではなかったことを示しています。
+And  in  exact  parallel,  James says  to us,  v.  13,  "is  any  afflicted?  let  him  pray;"  that  is,  for  grace and strength.  But,  "Is any  sick?  let  him  call  for  the elders  of  the Church,"  and be  healed.
+また厳密に並行して、ヤコブは手紙の中で「あなたがたのうちに苦しんでいる人がいますか。その人は祈りなさい」(ヤコブの手紙5:13)、つまり恵みを受けて強くなりなさい、と言っていますが、他方で「あなたがたのうちに病気の人がいますか。その人は教会の長老たちを招き……」(5:14)、癒されなさいと言っています。
+Affliction  is "suffering with  Christ;"  and He was  not  sick.  "In  the world  ye  shall  have tribulation;" but  all  the  more  we need a sound,  strong  heart,  to  bear  and overcome.
+苦しみは、「キリストと共に苦しむ」ことです。キリストは病気ではありませんでした。「あなたがたは、世にあっては患難があります」(ヨハネ16:33)が、それゆえなおのこと、私たちには患難に耐え、打ち勝つために健やかで強い心が必要です。
+
+6
+It  is  objected that  it  is  presumptuous  to  claim the healing of  disease absolutely, and that the  model of  all true prayer  is  Christ's  language in the garden:  "If it be possible,  let this  cup pass:  nevertheless  not My  will,  but  Thine be  done."
+【六】　病気の癒しを絶対的に求めるのは傲慢だ、という反論があります。
+
+真の祈りの模範はキリストがゲッセマネの園で祈ったことばである、と。「できますならば、この杯をわたしから過ぎ去らせてください。しかし、わたしの願うようにではなく、あなたのみこころのように、なさってください。」(マタイ26:39)
+Yes,  but they  have  forgotten  that  He  knew  it  was  not possible  that  this  cup should pass, that  in this  case  He  was  asking  something  which,  to  say  the  very  least,  He  had  no promise or  warrant  to and which  He repudiated  instantly,  saying,
+そのとおりです。しかし、反論者は忘れています。キリストはこの杯が過ぎ去ることは不可能だと知っていました。またこのときキリストが願われたものは、控えめに言って、約束も保証ももない事柄でしたから、すぐに撤回してこう言われたのです。
+"Save  me  from this  hour;  but for  this  cause  came  I  unto  this  hour.  Father,  glorify  Thy  Name."
+「『父よ。この時からわたしをお救いください』と言おうか。いや。このためにこそ、わたしはこの時に至ったのです。父よ。御名の栄光を現してください。」(ヨハネ12:27-28)
+Certainly,  in  any  such  circumstances,  when  prompted  by  extreme  distress  to  ask for  something  for  which we  have  no  clear  warrant,  promise  or  favorable intimation  of  the Divine will,  we ought  ever  to  refer  the  matter  to  the arbitration of  that  unknown  will.
+確かに、ある状況のもとでは、
+But  when  we know  from  His  own  word  to  us  that a blessing is  in  accordance with  His  will,  that  it  is  provided  for,  purchased and promised,  is it  not  really  evasive,  uncandid,  disingenuous,  and  really  an  affectation  to  come  to Him  in  doubt  and uncertainty,  or  couching  our  requests  in  the  language of ambiguity?  Is  it  not  very  much  the same  as  if  a son at college should still  keep writing and asking  your  permission  for  things  wherein  you had already  written  the fullest  directions  in  your  first  letter?  Did Christ  thus  pray,  when  He asked  for things  He  knew  to  be  consistent  with  God's  will?  Is  it  not  as  lawful  for us  to imitate  Him  in  one prayer  as  another,  at  Bethany  equally  with  Gethsemane?  And there,  what  did He say?  "Father,  I  know  Thou  hearest  Me  always,"  and again, "Father, I will  that  they  be  with  Me."  In  His  name  may  we  not  pray  even  as  He, where His  will  is  clearly  made known?  "If  ye  abide  in  Me,  and My  words  abide  in you,  ye  shall  ask what  YE  WILL,  and  it  shall  be  done unto  you."  Do we pray  in indefiniteness  when  we ask  for  forgiveness?  We  take  it  and claim  it,  and  being strong  in  faith,  we thus  most  effectually  glorify  God.
+
+7
+We are told that there are many cases  of  failure;  and Paul  and  his  companions  are first  enumerated.  Paul's  inevitable  thorn  is  kept  as  a precious  relic  to  torment doubting  Christians;  and Trophimus  and Epaphroditus  are dragged forward  on their  couches  to  encourage  the willing patient  in  the hospital  of  Doubting  Castle. With  regard  to  Paul's  thorn  we  must  say,  First:  It is  very  uncertain  if  it  was disease;  it  was  a messenger  of  Satan  to  buffet  him,  i.e.,  some  humiliation-perhaps stammering.  Secondly:  It  was  so  far  healed and  more  than  healed,  whatever  it was,  that it  brought  the power  of  Christ  to  rest  upon  him  so  mightily  that  he  was abundantly  enabled  for  all  his  labors  and duties,  and longed  for  more  such provocations  of  blessing.  And he who  can  see  in  this  a  feeble  invalid  laid  aside from  work,  is  afflicted  with  spiritual  cross  eyes.  Thirdly:  Before  people  can  claim that  their  sickness  is  a  heavenly  visitation  like  Paul's  to  keep  them  from  being exalted above  measure,  they  would need to  have  been  up  in  the third heaven  with him  and  heard things  unlawful  for  a  man  to  utter!  And  Fourthly:  Paul  does  give us  elsewhere the account  of  his  healing  (II.  Cor.  i.  10);  and  it  was  unmistakably  by believing prayer  and  mighty  faith  even  in  God  that raiseth  the dead.  As  to Epaphroditus,  he  was  healed through  God's  mercy.  Trophimus,  doubtless,  was also,  although  it  must  have  been  delayed.  Healing,  even  by  faith,  is  not  always instantaneous.  There are "miracles"  and "gifts  of  healing,"  the one sudden  and stupendous,  the other  simple  and probably  gradual.  That  Trophimus  should have been  himself  to  blame  for  his  illness  or  slowness  of  faith  is  not wonderful,  and that  there should  be  only  two such  cases  in  all  these  inspired personal  sketches  is most  wonderful. There are still  cases  of  failure,  but  they  may  be  accounted for,  perhaps  through defective knowledge or  unbelief,  disobedience to  God in  some  way,  failure to follow  consistently  the teachings  of  the Word  and the Spirit  or  for  a deeper spiritual  discipline.  And there are failures  in  the spiritual  life,  from  the same  or similar  causes,-which  in  no  way  disprove  the reality  of  the Divine promises  or  the sufficiency  of  Christ's  grace.  "Let  God  then  be  true,"  even  if  "every  man" be  "a liar."
+
+8  But we  are  told,  if  these  things  be  so,  people should never  die.  Why not?  Why should  faith  go  farther  than  the Word?  Anything beyond  that  is  presumption.  The Word  places  a  limit  to  human  life,  and all  that  Scriptural  faith  can  claim  is sufficiency of  health  and  strength  for  our  life-work  and  within  its  fair  limits.  It may  be  longer  or  shorter,  but  it  need  not,  like  the  wicked,  fail  to  live  out  half  its days.  It  should  be complete,  satisfying,  and as  long  as  the work  of  life  is  yet undone. And  then, when  the  close  comes,  why  need  it  be  with  painful  and depressing sickness,  as  the rotten  apple  falls  in  June from  disease,  and with  a worm at  the root?  Why  may  it  not  be  rather  as  that  ripe apple would drop  in September,  mature,  mellow,  and ready  to  fall  without a struggle  into  the gardener's  hand?  So  Job  pictures  the close of  a good man's  life  as  the  full  maturity of  "the  shock  of  corn  that  cometh  in  its  season."
