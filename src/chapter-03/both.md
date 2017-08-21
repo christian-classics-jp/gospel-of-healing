@@ -139,22 +139,23 @@ We do not believe that God chastens an obedient child simply to make it good.
 Here is a definite and unchangeable law of God's dealings with His dear children. When we are judging ourselves we shall not be judged. While we hearken and obey, He "will put none of these diseases upon us which He brought upon the Egyptians."
 ここに神がその愛する子供たちを取り扱う明確な不変の法則があります。私たちが自分を裁くなら、私たちは裁かれません。私たちが聞き従うなら、「わたしはエジプトに下したような病気を何一つあなたの上に下さない。」(出エジプト15:26)
 His normal state for His faithful children is soundness of body, soul and spirit (I Thess. v. 23). His own prayer for them is that they may be in health and prosper even as their souls prospereth.
-神が子供たちに語る標準的なことばは、体、魂、霊が健やかであれ、です(第一テサロニケ5:23)。神が子供たちに祈るのは、魂に幸いを得ているように、健康でもありますように、です。
+神が子供たちに語る標準的なことばは、体、魂、霊が健やかであれ(第一テサロニケ5:23)です。神が子供たちに祈るのは、魂に幸いを得ているように、健康でもありますように、です。
 His will for them is to act in these things according to His word. It is ever "the good pleasure of His goodness," and "that good and perfect and acceptable will of God."
 神が子供たちに願うのは、神のことばのとおりに生きることです。神のことばはつねに「神の善を喜ぶ」(第二テサロニケ1:11、KJV)こと、「神のみこころは何か、すなわち、何が良いことで、神に受け入れられ、完全であるのか」(ローマ12:2)を知ることです。
  "Many," it is true, "are the afflictions of the righteous;" but it is also true that "the Lord delivereth him out of them all. He keepeth all his bones: not one of them is brqken."
-「正しい者の悩み(苦しみ:KVJ)は多い」のは真実です。しかしまた「主はそのすべてから彼を救い出される。主は、彼の骨をことごとく守り、 その一つさえ、砕かれることはない」もまた真実です(詩篇34:19-20)。
+「正しい者の悩みは多い」のは真実です。しかしまた「主はそのすべてから彼を救い出される。主は、彼の骨をことごとく守り、 その一つさえ、砕かれることはない」もまた真実です(詩篇34:19-20)。
 And between "affliction" and sickness it must be well remembered there is a very clear distinction.
-そして「苦しみ」と病気の間には、明白な区別があることはよく覚えられなければなりません。
+そして「悩み・苦しみ」と病気の間には、明白な区別があることはよく覚えられなければなりません。
 At Marah, the children of Israel had to drink of bitter water, and it was only sweetened, not removed; as many a trial is sanctified and blessed.
-マラにて、イスラエルの子らが苦い水を飲まなければならず、それは取り除かれたのではなく甘くされただけでした。同数の？？試練は聖化され祝福される？？
+マラにて、イスラエルの子らが苦い水を飲まなければなりませんでしたが、水は除去されたのではなく甘くされたのでした。同じように、試練はきよめられ祝福へと変えられるものです。
 But it was right there that He made a statute and an ordinance of healing, and told them that if they would obey Him, they should not be sick, and He would be their constant Healer, thus showing them that Marah was not sickness.
-けれども、まさにその場所で、神は癒しのために像を造らせ、布告を行いました。もし彼らが神に従うなら、病気にならず、神が常に癒し主となる、と。この事実は、マサのあれは病気ではなかったことを示しています。
+他方で、まさにその場所で、神は癒しのために像を造らせ、布告を行いました。もし彼らが神に従うなら、病気にかからず、神が常に癒し主となってくださる、と。この事実は、マサでの苦い水は病気とは違っていたことを示しています。
 And in exact parallel, James says to us, v. 13, "is any afflicted? let him pray;" that is, for grace and strength. But, "Is any sick? let him call for the elders of the Church," and be healed.
-また厳密に並行して、ヤコブは手紙の中で「あなたがたのうちに苦しんでいる人がいますか。その人は祈りなさい」(ヤコブの手紙5:13)、つまり恵みを受けて強くなりなさい、と言っていますが、他方で「あなたがたのうちに病気の人がいますか。その人は教会の長老たちを招き……」(5:14)、癒されなさいと言っています。
+また、まさに同じ主題について、ヤコブは手紙の中で「あなたがたのうちに苦しんでいる人がいますか。その人は祈りなさい」(ヤコブの手紙5:13)、つまり恵みを受けて強くなりなさい、と命じていますが、他方で「あなたがたのうちに病気の人がいますか。その人は教会の長老たちを招き……」(5:14)、癒されなさいと命じています。
 Affliction is "suffering with Christ;" and He was not sick. "In the world ye shall have tribulation;" but all the more we need a sound, strong heart, to bear and overcome.
-苦しみは、「キリストと共に苦しむ」ことです。キリストは病気ではありませんでした。「あなたがたは、世にあっては患難があります」(ヨハネ16:33)が、それゆえなおのこと、私たちには患難に耐え、打ち勝つために健やかで強い心が必要です。
+苦しみは、「キリストと共に苦しむ」ことです。キリストは病気ではありませんでした。「あなたがたは、世にあっては患難があります」(ヨハネ16:33)が、それゆえなおのこと、私たちには患難に耐え、打ち勝つために、健やかで強い心が必要です。
 
+---
 6
 It is objected that it is presumptuous to claim the healing of disease absolutely, and that the model of all true prayer is Christ's language in the garden: "If it be possible, let this cup pass: nevertheless not My will, but Thine be done."
 【六】　病気の癒しを絶対的に求めるのは傲慢だ、という反論があります。
