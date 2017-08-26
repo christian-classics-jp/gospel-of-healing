@@ -86,7 +86,7 @@ But if it was necessary for Him to fulfill that character then, it is as much so
 しかし、もし福音書の時代にキリストのご人格を実現することが必要であったなら、今もなおさらそうです。神が描写したキリスト像、つまりご自分が描かれたキリスト像に真実であることを決してやめるわけにはいかないからです。
 If this be not true still for us, then "Jesus Christ is" NOT "the Same, yesterday, to-day, and forever." If this be not still true for us, then-perhaps-the other promises of the Scripture are not also true for us, and He has not borne our sins any more than our sickness and suffering.
 もしこれが今の私たちにとって真実でないなら、「イエス・キリストは、きのうも、きょうも、いつまでも同じ」では**ありません**。こしこれが今の私たちにとって真実でないなら、おそらく、聖書の他の約束も、私たちに真実ではありません。キリストは私たちの病と苦しみを背負わなかったように、私たちの罪を負ってくださいません。
-Nay, "His heart is still the same:-  Kinsman, Friend and Elder Brother,  Is His everlasting name;  Thou art All in All to me,  Living One of Bethany."
+Nay, "His heart is still the same:- Kinsman, Friend and Elder Brother, Is His everlasting name; Thou art All in All to me, Living One of Bethany."
 そんなことは不合理です。
 
 「キリストの心は今も同じです。
@@ -201,3 +201,39 @@ It may be longer or shorter, but it need not, like the wicked, fail to live out 
 生涯は長いかもしれませんし、短いかもしれませんが、悪人の人生とは違って、満たすべき日々の半ばで絶える必要はありません。それは完全で、満足のいくものであるはずで、人生の働きが完了しないうちに途絶えるようなものではありません。それから、生涯の終わりが来るときに、六月に病気のりんごが腐っておちるように、あるいは根が虫に食われて枯れるように、病気にかかって失意と痛みの中で死んでいく必要がどうしてあるのでしょうか。
 Why may it not be rather as that ripe apple would drop in September, mature, mellow, and ready to fall without a struggle into the gardener's hand? So Job pictures the close of a good man's life as the full maturity of "the shock of corn that cometh in its season."
 九月になってりんごが成熟し、甘くなり、難なく収穫者の手に落ちる準備が整ってから落ちるように、人生の終わりもそうなってはいけないのでしょうか。ヨブは正しい人の生涯の終わりを、こうたとえています。「あたかも麦束がその時期に収められるように」（ヨブ5:26）。
+
+9
+We are asked by some, did not God make all these means, and does He not want us to use them? And, indeed, is it not presumption for us to expect Him to do anything unless we do all we can for ourselves?
+【九】　神はそれらのみことばを文字通りには意図しておられず、私たちが文字通りに適用することを願われていないのではないか。また実際、私たちが自分でできることをすべて行ったあとでなければ、神に何がしていただくのを期待するのは厚かましいのではないか。
+
+We answer, First: God has nowhere prescribed medical means, and we have no right to infer that drugs are ordinarily His means. They are not, as food, again and again referred to as necessary or enjoined for our use.
+私たちの答えはこうです。第一に、神は医学的治療をどこにも正式に定めておられないので、医薬が神の通常の治療法であると推測する権利を私たちは持っていません。医薬は、私たちの必要を満たし楽しむべしと食物のように繰り返し言及されているわけではありません。
+It is a most singular and unanswerable fact that in the whole history of the patriarchs no reference is made to the use of such means.
+反論の余地のない顕著な事実は、歴史上の司教・監督は医学的治療の使用にまったく言及していないという点です。
+In the story of Job, so full of vivid details, everybody else is described but the doctor, and everything in the universe but drugs.
+ヨブの物語では微に入り細に入りさまざまな描写がされていますが、登場人物の中で医者だけが出てきませんし、被造物の中で医薬だけが出てきません。
+There is no physician in attendance, or surely we should have caught a glimpse of him in that chamber and when Job recovers, it is wholly from God's direct hand, and when he himself gets down in his true place of humility to God and love to man.
+確かにヨブが回復したとき部屋に医者がちらりと登場しますが、ヨブが治ったのは完全に神の直接の御手によるものでした。ヨブ自身が神にへりくだり人を愛する本来の位置へと立ち戻ったときに神が癒したのでした。
+In the still more elaborate prescriptions, prohibitions and enactments of the Book of Leviticus about all the details of human life, even including the disease of leprosy, there is no remote intimation of a doctor or a drug store.
+レビ記に記されている人間生活のすみずみに渡った詳細な指示、禁止、おきてにおいて、らい病を含めあらゆる病気について、医者や薬局への言及はわずかにもありません。
+
+And it is not until after the time of Solomon, and the importation, no doubt, of Egypt's godless culture and science, that we find the first definite case of medical treatment; and there the patient dies, and dies under the stigma of unbelief and declension from God.
+聖書の中で最初に見つけられる明確な医療行為は、ソロモンの後の時代まで待たなければなりません。明らかにエジプトの神なき文化と科学の無能さを表すものとして記されています。患者は死にました。不信仰によって神から見捨てられ、恥辱の下で死にました。
+In the New Testament such "means" are referred to in hardly more complimentary terms, when the woman who touched the hem of His garment is described.
+新約聖書でも、医療行為はほとんど褒められていません。キリストの衣のすそに触れた女性の箇所では、あまり好意的に言及されていません。。
+If Luke were a physician, he abandoned his practice for evangelistic work, as may be strongly inferred from his itinerant life; for no practice could be maintained in such circumstances. Without going further, this much at least is clear: First, that God has not prescribed medicine. Secondly, He has prescribed another way in the Name of Jesus, and provided for it in the atonement, appointed an ordinance to signalize it, and actually commanded and enjoined it.
+ルカが医者だったとすると、彼の巡回生活から推察するに、福音の働きのために医者を辞めたに違いありません。腰をすえて治療行為にあたれないからです。次に進む前に、少なくとも以下の点を明確にしておきます。第一に、神が医薬を命じられたことはありません。第二に、神が命じられたのは別の方法です。イエスの御名によって、贖いの中にそれが差し出されています。神はそれを覚えるようおきてを定め、また実際に行うよう命じておられます。
+And thirdly, all the provisions of grace are by faith, not by works. The use of remedies, if successful, usually gives the glory to man, and God will not do so. If the healing of sickness is one of the purchases of Christ's atonement, and one of His prerogatives as our Redeemer, then He is jealous for it, and we will also be jealous.
+第三に、恵みのあらゆる規則は行いではなく信仰によります。医療行為は、たとえうまくいっても、人に栄光を与えるものです。神はそのようなことをなさいません。もし病気の癒しがキリストの贖いによって買い取られたものの一つであり、私たちの贖い主からの特別な贈り物の一つであるなら、神は医療行為を妬まれます。私たちも妬むべきです。
+If it be part of the scheme of salvation, then we know that the whole scheme is framed according to the "law of faith" if the language of James be a command, then it excludes the treatment of disease by human remedies as much as the employment of one physician would exclude the treatment of another at the same time and for the same case.
+救済の枠組みの中に置かれるものはすべて、「信仰の律法」に従って定められていることを私たちは知っています。ヤコブのことばの中で（神癒が）命令されているのなら、人間的な医療行為とは排他的です。一人の医者を雇ったなら、同じ病気について同時に他の医療行為を排他するのと同じことです。
+If it be God's way of healing, then other methods must be man's ways, and there must be some risk in deliberately repudiating the former for the latter. We do not imply by this that the medical profession is sinful, or the use of means always wrong.
+それが癒しの神の方法なら、他の方法は人間の方法であらざるをえず、後者のために前者を故意に避妊することにはリスクが伴います。医療行為が罪だとか、それがつねに間違っていると言いたいわけではありません。
+There may be, there always will be, innumerable cases where faith is not exercised; and if natural means have, as they do have, a limited value, there is ample room for their exercise in these.
+信仰が実践されていない分野が今もこれからも数えきれないほどあります。自然の方法に限界があるなら――明らかに限界があります――信仰を実践する余地が広大に残っています。
+But for the trusting and obedient child of God there is the more excellent way which His Word has clearly prescribed, and by which His name will be ever glorified afresh, and our spiritual life continually renewed. The age is one of increasing rationalism, and unbelief is constantly endeavoring to eliminate all traces of direct supernatural working from the universe, and explain everything by second causes and natural development; and God, for this very reason, wants to show his immediate working wherever our faith will afford Him an opportunity.
+けれども、神に信頼する神の子供たちのためには、神のことばがはっきりと定めておられる遥かに素晴らしい方法があります。それによって神の御名がさらに栄光が高められ、私たちの霊的生活は継続的に新たにされます。現代は合理主義が勢力を得ているため、不信仰が直接的な超自然的働きのすべての痕跡を宇宙から締め出そうと不断の努力を行っていて、あらゆるものを第二の原因と自然の発達？？によって説明しようと。そして神は、まさにこの理由のために、私たちの信仰が神に機会を与える場所はどこででも、直接の働きを示したいと願わているのです。
+The Higher Criticism is industriously taking the miraculous from our Bibles, and a lower standard of Christian life is busy taking all that is divine out of our life.
+高等批評が聖書から奇跡を勤勉に取り上げ、より低い規準のクリスチャン生活が神のあらゆるものを私たちの生活から取り上げています。
+Let all who believe in a living God be willing to prove to a scoffing generation that "the everlasting God, the Creator of the ends of the earth, fainteth not, neither is weary," for "in Him we live and move and have our being," and that still there is "nothing too hard for the Lord."
+生ける神を信じる人はみな、あざける世代に対して、「主は永遠の神、地の果てまでも創造された方。疲れることなく、たゆむことなく」（イザヤ40:28）みわざを行なわていることを勇んで証明しようではありませんか。「私たちは、神の中に生き、動き、また存在している」（使徒17:28）のですから、神には今もなお「何ひとつできないことはありません」（エレミヤ32:17）。
