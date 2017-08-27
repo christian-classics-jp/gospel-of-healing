@@ -1,5 +1,5 @@
 CHAPTER III. POPULAR OBJECTIONS.
-第三章　よくある反論
+# 第三章　よくある反論
 
 We will now refer to some of the most forcible objections to the glad tidings that He that forgiveth all our iniquities,"as truly and as fully also" healeth all our diseases."
 さて、すべての罪を赦してくださった神が同じ真実と完全をもって病気をも治してくださるという喜ばしい知らせに対して、反論もあります。その中でとりわけ説得力のある反論に答えましょう。
