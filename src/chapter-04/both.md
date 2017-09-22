@@ -2,26 +2,26 @@ CHAPTER IV PRINCIPLES OF DIVINE HEALING.
 # 第四章 神癒の諸原理
 
 There are certain principles underlying all the teachings of the Holy Scriptures with respect to healing; which it is important to understand and classify and which, when rightly understood, are most helpful to intelligent faith.
-神癒に関して聖書全体の教えに基づく原理があります。よく理解し、整理することが大切です。正しく理解するなら、知性で納得した信仰のために非常に有益です。
+聖書全体の教えに基づいた神癒の原理があります。よく理解し、整理することが大切です。正しく理解するなら、知性的な信仰のために非常に有益です。
 
 1 THE CAUSES OF DISEASE and suffering are distinctly traced to the Fall and sinful state of man.
 【一】　**病気の苦しみの原因**は他ならぬ堕落と人間の罪です。
 
 If sickness were part of the natural constitution of things, then we might meet it wholly on natural grounds, and by natural means. But if it be part of the curse of sin, it must have its true remedy in the great Redemption. That sickness is the result of the Fall, and one of the fruits of sin no one can surely question. Death, we are told, hath passed upon all, for that all have sinned, and the greater includes the less. It is named among the curses of Deuteronomy, which God was to send for Israel's sin.
-もしも病気が自然の構成物の一部であるなら、私たちは自然の観点に立って、自然の方法によって病気を扱うのがよいでしょう。しかし、もしも病気が罪による呪いの一部であるなら、贖いの中に本当の治療法があるに違いありません。病気が堕落の結果であり、罪の実の一つであることを疑う人はいません。私たちが伝えられているのは、すべての人が罪を犯したの、死がすべての人に臨むということです。そして、大は小を含みます。申命記にある、神がイスラエルの罪のために送るとされる数々の呪いの中で、病気はその一つに挙げられています。
+もしも病気が自然の構成物の一部であるなら、私たちは自然の観点に立って、自然の方法に従って病気を扱うのがよいでしょう。けれども、もしも病気が罪による呪いの一部であるなら、贖いの中に本当の治療法があるに違いありません。病気が堕落の結果であり、罪の実の一つであることを疑う人はいません。私たちに伝えられているのは、すべての人が罪を犯し、死がすべての人に臨むということです。そして大は小を含みます。申命記にある、神がイスラエルの罪のために送るとされる数々の呪いの中で、病気はその一つに数えられています。
 Again, it is distinctly connected with Satan's personal agency. He was the direct instrument of Job's suffering, and our Lord definitely attributed the diseases of His time to his direct power. It was Satan who bound the paralyzed woman these eighteen years; and it was demoniacal influence which held and crushed the bodies and souls of those He delivered. If sickness be the result of evil spiritual agency, it is most evident that it must be met and counteracted by higher spiritual force, and not by mere natural treatment.
-また、病気はサタンの使いと明確に結びついています。サタンはヨブの苦しみに直接の原因を作った者です。また私たちの主は神の時の病気？？を明白にサタンの直接的な力に帰しています。病気の女性を十八年間縛り付けていたのはサタンでした。主が解放した者たちの魂と肉体をつかんで押しつぶしていたのは、悪魔の影響でした。病気が悪魔の霊的な使いの結果であるとすれば、自然の治療ではなく、より高い霊的な力によって、対抗し、対処しなければなりません。
+また、病気はサタンの使いと明確に結びついています。サタンはヨブの苦しみに直接の原因を作った者です。また私たちの主は神の時に起こる病気を明らかにサタンの直接的な力に帰しています。病気の女性を十八年間縛り付けていたのはサタンでした。主が解放した者たちの魂と肉体をつかんで押しつぶしていたのは、悪魔の影響でした。病気が悪魔の霊的使いの結果であるとすれば、自然の治療ではなく、より高い霊的な力によって対抗し、処置しなければなりません。
 And again, on the supposition that sickness is a divine discipline and chastening it is still more evident that its removal must come, not through mechanical appliances, but through spiritual causes. It would be both ridiculous and vain for the arm of man to presume to wrest the chastening-rod from the Father's hand by physical force or skill. The only way to avert His stroke is to submit the spirit in penitence to His will, and seek in humility and faith His forgiveness and relief; so that from whatever side we look at disease, it becomes more and more evident that its remedy must be found alone in God and the Gospel of His Redemption.
-さらにまた、病気を神の訓練やこらしめと仮定した場合も、病気が治るのは医療機械ではなく霊的な原因があってこそであるというのはなおもますます明らかです。御父の手にあるこらしめの杖を人間の腕で物理的な力や技術を駆使してもぎ取れると思うのは、愚かでむなしいことです。神のこらしめを避ける唯一の方法は、悔いた魂を神のみこころの前に差し出し、へりくだりと信仰をもって神の赦しと安息を求めることです。どちらの観点から病気を捕らえても、病気の治療はただ神の中にのみ、ただ神の贖いの福音の中にのみ見出されなければならないのはますます明らかになります。
+さらにまた、病気を神の訓練やこらしめと仮定した場合にも、病気が治るのは医療機械によらず霊的な原因あってこそであるという推論はなおもますます明らかです。御父の手にあるこらしめの杖を物理的な力や技術を駆使して人間の腕でもぎ取れると考えるのは、愚かでむなしいことです。神のこらしめを避ける唯一の方法は、悔いた魂を神のみこころの前に差し出し、へりくだりと信仰をもって神の赦しと安息を求めることです。どちらの観点から病気を捉えても、病気の治療はただ神の中にのみ、ただ神の贖いの福音の中にのみ見出されなければならないのはますます明らかになります。
 
 2 If the disease be the result of the fall, we may expect it to be embraced in the provisions of Redemption, and would naturally look for some intimation of a remedy in THE PREPARATORY DISPENSATION which preceded the Gospel. Nor are we disappointed.
-【二】　病気が堕落の結果であるなら、贖いの中に含まれていることを期待してよいし、福音に先立つ**準備的な経綸**の中に病気の癒しの暗示を求めることを自然です。
+【二】　病気が堕落の結果であるなら、贖いの中に含まれていることを期待してよいし、福音に先立つ**準備的な経綸**の中に病気の癒しの暗示を求めることは自然です。
 
 私たちは失望させられません。
 The great principle that God's care and providence embraces the temporal and physical needs of his people as well as the spiritual, runs all through the Old Testament.
-神の配慮と供与が神の民の霊的必要とともにこの世での肉体的必要をも含んているという偉大な原理は、旧約全体を通じても示されています。
+神の配慮と供与が神の民の霊的必要とともにこの世での肉体的必要をも含んているという偉大な原理は、旧約全体にも示されています。
 Distinct provision for Divine healing is made in all the ordinances of Moses. And the prophetic picture of the Corning Deliverer is that of a great Physician as well as a glorious King and gracious Saviour.
-モーセの律法の中にも明確に神癒があります。穀物を与える牧者という預言的な描写は、栄光の王や恵み深い救い主に加えて偉大な医者という神のイメージを与えます。
+モーセの律法の中にも明確に神癒があります。穀物を与える牧者という預言的な描写は、栄光の王や恵みの救い主というイメージに加えて偉大な医者という神のイメージを与えます。
 The healing of Abimelech, Miriam, Job, Naaman and Hezekiah; the case of the Leper and the Brazen Serpent, the statute at Marah, and the blessings and curses at Ebal and Gerizim, the terrible rebuke of Asa, the one hundred and third Psalm, and the fifty-third chapter of Isaiah, leave the testimony of the Old Testament clear and distinct that the redemption of the body was the Divine prerogative and plan.
 アビメレク、ミリアム、ヨブ、ナアマン、ヘゼキヤの癒し、らい病と青銅の蛇、マラでのおきて、ゲリジム山の祝福とエバル山ののろい、アサ王に対するきびしい叱責、詩篇103篇、イザヤ書53章、それらが肉体の贖いが神の大権でありご計画であるという旧約聖書の証言を明白で明確にしています。
 
