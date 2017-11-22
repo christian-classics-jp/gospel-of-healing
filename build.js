@@ -1,39 +1,31 @@
 #!/usr/bin/env node
+
 /**
- * build ja.md
+ * Create jp.md from both.md
  */
 const fs = require('fs')
 const { join } = require('path')
+const separate = require('jesep')
 
-process.chdir(join(__dirname))
+const target = process.argv[2]
+if (!target) {
+  console.log(`
+Usage: build.js <target dir>
+`)
+  process.exit()
+}
 
-// let dirs = fs.readdirSync('src')
-let dirs = ['chapter-05']
-for (let dir of dirs) {
-  let srcPath = `src/${dir}/both.md`
-  let jaPath = `src/${dir}/jp.md`
+build(target)
+
+function build (target) {
+  const srcPath = join(target, 'both.md')
+  const destPath = join(target, 'jp.md')
 
   if (!fs.existsSync(srcPath)) {
-    continue
+    console.error(`${srcPath} not found`)
+    return
   }
-  let text = fs.readFileSync(srcPath).toString()
-  let texts = text.split('\n').map(str => str.trim())
-  if (texts.length < 3) {
-    continue
-  }
-  let jaSentences = texts.filter(
-    (text, i) => !/^[a-zA-Z0-9"]/.test(text)
-  ).map(
-    (text) => {
-      if (text === '') {
-        return '\n\n'
-      }
-      if (/^[1-9+*->#]/.test(text)) {
-        return text + '\n'
-      }
-      return text
-    }
-  )
-  let ja = jaSentences.join('')
-  fs.writeFileSync(jaPath, ja)
+  const text = fs.readFileSync(srcPath).toString()
+  const ja = separate(text)
+  fs.writeFileSync(destPath, ja)
 }
