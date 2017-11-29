@@ -56,31 +56,31 @@ THE WOMAN WITH THE SPIRIT OF INFIRMITY. Luke xiii. 10-20.
 ## 病の霊につかれた女（ルカ一三章一〇節～二〇節）
 
 This beautiful incident occurred a good deal later, but as it was one of Christ's Sabbath miracles, and comes in the same general class with those just referred to, supplementing and enforcing the same principles, we will introduce it here.
-この美しい出来事はしばらく後に起こりましたが、キリストの安息日の奇跡のひとつで、先に挙げた話と同じ一般的なクラスに分類でき、同じ原理を補足し補強します。それをここで紹介しましょう。
+この美しい出来事はしばらく後に起こりました。これはキリストの安息日の奇跡のひとつで、先に挙げた話と同じ一般的な類型に分類できます。この話も同じ原理を補強します。紹介しましょう。
 
 1 The nature of her disease. It was a case of helpless paralysis and deformity. She was bowed together, and could in no wise lift herself up. It was also of long standing. She had been eighteen years in this condition. It was, therefore, about as difficult a chronic case as could well be brought to the great Healer.
-（一）　女の病はどういうものだったのでしょうか。体の変形と麻痺でした。腰が曲がり、自分では伸ばせなくなっていました。しかも長い間ずっとそうでした。十八年間この状態でした。そのため、偉大な癒し主のもとに持っていくほか取り扱いようのない状態でした。
+（一）　女の病はどういうものだったのでしょうか。体の変形と麻痺でした。腰が曲がり、自分では伸ばせなくなっていました。しかも長い間ずっとそうでした。十八年間、この状態が続いていました。そのため、偉大な癒し主のもとに持っていくほか取り扱いようのない状態でした。
 
 2 The cause of her disease. Here a ray of marvelously clear and keen light is thrown in not only upon her case, but upon the whole question of disease. The Lord distinctly declares that her troubles had come, not through natural causes, but direct personal agency, the agency of an evil spirit, that her very body is bound by A SPIRIT OF INFIRMITY.
-（二）　病の原因は何でしょうか。この箇所で、驚くほど明るく鋭い光が投げかけられています。彼女の場合にとどまらず、病気一般の原因は何なのかが明かされています。主は彼女の問題が自然の原因から起きたのではなく、直接的な人格的存在に原因があることを明確に指摘しておられます。それは悪霊であり、彼女の体はまさしく**病の霊**に縛られていたのです。
+（二）　病の原因は何でしょうか。この箇所で、驚くほど明るく鋭い光が投げかけられています。彼女の場合にとどまらず、病気一般の原因は何であるかが説明されています。主は彼女の問題が自然の原因から起きたのではなく、直接的な人格的存在に原因があることを明確に指摘しておられます。その原因とは悪霊であり、彼女の体はまさしく**病の霊**に縛られていたというのです。
 And He afterwards declares that SATAN HAS BOUND HER, lo, these eighteen years. He does not recognize it as a case of Providential discipline, but the direct hand of the devil upon her frame. This is incapable of evasion or ambiguity. And it may well make one shudder who has been nursing and petting some foul demon, as if it were an angel.
-それから主は**サタンが彼女を縛っていた**、見よ、十八年間も、と宣言しておられます。主はこれを神の訓練とはみなさず、悪魔の手が彼女の体に直接働きかけたとみていました。口実も曖昧さもありません。昔流雲がまるで天使かのように養い回鳴らしていたとすれば身震いするような恐ろしいことです。
+それから主は「見よ、十八年間も**サタンが彼女を縛っていた**のだ」と宣言しておられます。主はこれを神の訓練とはみなさず、悪魔の手が肉体に直接働きかけた結果とみていました。婉曲表現も曖昧さもありません。汚れた悪魔をまるで天使かのように大事に世話していたとしたら、それは身震いするような恐ろしいことです。
 
 3 The question of God's will is also made marvelously clear. There is no greater word in Christian ethics than "OUGHT." It is the word of conscience, of law, of Everlasting Right. It is a cable that binds both God and man. When God says ought, there is no appeal, no compromise, no alternative, nothing but absolutely to obey.
-（三）　神の御心に関する疑問も驚くほど明確にされています。クリスチャン倫理において「すべき」ほど強い言葉はありません。それは良心の、律法の、永遠の義の言葉です。それは神と人とを両方とも縛り付けておく綱です。神がすべきと言われるなら、不服申し立ても、妥協も、代替手段もありえません。絶対的に従う以外にありません。
+（三）　神のみこころに関する疑問も驚くほど明確になっています。クリスチャン倫理において「すべき」ほど強い言葉はありません。それは良心の、律法の、永遠の義の言葉です。それは神と人とを両方ともを縛り付けておく綱です。神がすべきと言われるなら、不服申し立ても、妥協も、代替手段もありえません。絶対的に従う以外にありません。
 It does not mean that a thing is possible, or permissible, or perhaps to be done, but it means that it is necessary to be done and that not to do it would be WRONG. And Christ says to these evil men who would put these petty prejudices before God's beneficent will and His creatures' happiness, "OUGHT NOT THIS WOMAN TO BE LOOSED FROM THIS BOND?" That ought to settle the question of how God regards our healing.
-することができるとか、しても良いとか、するかもしれないという意味ではありません。必ずする必要があり、それをしないのは**間違って**います。そしてキリストが言われました。上野利益をもたらす御心と秘蔵仏の幸福について気の毒な偏見を持っている子の悪い人たちの前で。「**この束縛を解いてやるべきではないでしょうか**（KJV）」。この言葉が神が私たちの癒しをどのように考えておられるかについての疑問を解決すべきです。
+できるとか、しても良いとか、するかもしれないという意味ではありません。必ず行う必要があり、それを行なわないのは**間違って**います。そして、被造物の幸福を願うなさけ深い神のみこころに関して誤った見解を持っているこの悪人たちに対して、キリストはこう言われました。「**この束縛を解いてやるべきではないでしょうか**」。この言葉によって、神が私たちの癒しをどう考えておられるかについての疑問に決着をつけるべきです。
 
 4 But there is one more principle, the greatest of all, and it conditions and limits this "ought" and everything else in her case; and that is the woman s faith. The Lord expressly calls her a child of faith. That is just the meaning of the expression "a daughter of Abraham." And it is this which makes it a matter of "Ought," that she should be healed.
-（四）　それともうひとつ、とりわけ重要な原理あります。この「すべき」と彼女の病気のほかのすべて？に条件と限界を設けます。それはこの女の信仰です。主は特別に彼女の信仰の子と呼びました。「アブラハムの娘」と言う表現はまさにそういう意味です。そしてこれこそが彼女が癒されることを「すべき」問題としています。
+（四）　もうひとつ、とりわけ重要な原理があります。この原理がこの「すべき」を含めたあらゆるものに条件と限界を設けます。それはこの女の信仰です。主は彼女を特別に信仰の子と呼びました。「アブラハムの娘」という表現はまさにこういう意味です。これこそが彼女の癒しを「すべき」ものとしています。
 "Ought not this woman, being a daughter of Abraham, to be loosed from this bond?" Is it the will of God to heal all? It is the will of God to heal all who believe. More is meant by the expression, "a daughter of Abraham," than mere faith.
-「この女はアブラハムの娘だというのに、この束縛を解いてやるべきてばないのでしょうか（KJV）」。すべての人を癒すことが神のみこころでしょうか。信じる者すべてを癒すことが神のみこころでしょうか。それ以上の意味がこの表現に含まれています。「アブラハムの娘」はただの信仰以上の意味です。
+「この女はアブラハムの娘だというのに、この束縛を解いてやるべきてばないのでしょうか」。すべての人を癒すことが神のみこころでしょうか。信じる者すべてを癒すことが神のみこころでしょうか。それ以上の意味がこの表現に含まれています。「アブラハムの娘」はただの信仰以上の意味です。
 It expresses a very strong faith, a faith which, like Abraham's, believed without sight, and in the face of seeming impossibilities. Have we any evidence of such faith on her part? We have. We are told that Jesus called her to Him and said, "Woman, thou art loose from thine infirmity." In the Revised version it is, "He called her." It implies that He required her to come to Him first.
-非常に強い信仰、アブラハムが持っていたような、見ることなしに信じ、不可能と思えることにあっても信じる信仰です。女がそのような信仰を持っていた証拠でもあるのでしょうか。あります。イエスが女を呼び寄せ、こう言われました。「女よ、あなたは病から解かれました」。改訂版では「イエスは女を呼び寄せ」とあります。イエスは女に、まず主のもとに来るよう求めたことを意味しています。
+非常に堅固な信仰、アブラハムのような、見ることなしに信じ、不可能と思えることであっても信じる信仰です。女がそのような信仰を持っていた証拠があるのでしょうか。あります。イエスが女を呼び寄せ、こう言われました。「女よ、あなたは病から解かれました」。（英欽定訳の）改訂版では「イエスは女を呼び寄せ」とあります。イエスは女に、まず主のもとに来るよう求めたことを意味しています。
 This would require supernatural exertion and faith and so she must have made the attempt to come before He touched her. Then, as she came, He declared the work done, "Woman, thou art loosed from thine infirmity;" and He laid his hands upon her and completed the work.
-これは超自然的な行使と信仰を要求し、そのため彼女はイエスが触れる前に来ようとしなければなりませんでした。それで、彼女が来ると、イエスはみわざがなされたことを言い切りました。「女よ、あなたは病から解かれました」。イエスは女に手を置き、みわざは完了しました。
+超自然的な行動と信仰が要求されていました。そのため、女はイエスに触れていただく前にイエスのもとに来ようとしなければなりませんでした。それから、彼女が来ると、イエスはみわざがなされたことを宣言しました。「女よ、あなたは病から解かれました」。イエスは女に手を置き、みわざは完了しました。
 But her faith had to take the initiative, and, like Abraham, step out, not knowing whither, on the naked call and strength of God. Then the work could be counted done. "Thou art loosed." And then the full results began to follow.
-しかし女の信仰は能動的でした。アブラハムのように、どこに行くかも知らずに、ただ神のメシと強さをそのまま受け入れて踏み出しました。そのときみわざは完了したと見なされました。「あなたは解かれました」。そのときすべての結果が伴い始めました。
+女の信仰は能動的でした。アブラハムのようにどこに行くかも知らないまま、ただ神の召しと確かさをそのまま受け入れて踏み出しました。そのときみわざは完了したと見なされました。「あなたは解かれました」。そのときすべての結果が伴い始めました。
 
 THE CENTURION'S SERVANT. Matt. viii. 5.
 ## 百人隊長のしもべ（マタイ八章五節）
