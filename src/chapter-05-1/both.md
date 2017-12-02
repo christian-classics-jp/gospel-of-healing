@@ -1,4 +1,4 @@
-# 第五章 聖書の証言（その一）
+# 第五章　聖書の証言（その一）
 
 CHAPTER V. SCRIPTURE TESTIMONIES.
 The value of testimonies upon this subject cannot be questioned. They are entirely Scriptural; and they often bring the Gospel down to the personal level and contact of the sufferer, as mere abstract teaching cannot do. But they should always be simple, modest, as impersonal as possible, and illustrate principles. This is the character of all the Scripture testimonies. We shall glance at a few of these.

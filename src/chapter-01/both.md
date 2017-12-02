@@ -1,5 +1,5 @@
 CHAPTER I. THE SCRIPTURAL FOUNDATION.
-# 第一章 聖書的土台
+# 第一章　聖書的土台
 
 Man has a two-fold nature. He is both a material and a spiritual being. And both natures have been equally affected by the fall. His body is exposed to disease; his soul is corrupted by sin. We would therefore expect that any complete scheme of redemption would include both natures, and provide for the restoration of his physical as well as the renovation of his spiritual life. Nor are we disappointed.
 人間は二重の性質からなっています。人間は物質的な存在であり、また霊的な存在でもあります。両性質は堕落によって等しく影響を受けました。肉体は病におかされ、魂は罪で腐敗しました。それゆえ、贖いの完全な理念は両性質を含む、つまり贖いは霊的ないのちの刷新だけでなく、肉体的ないのちの回復も与えるものであると期待してよいでしょう。もちろんその期待は失望に終わりません。

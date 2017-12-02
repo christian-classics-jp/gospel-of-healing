@@ -1,5 +1,5 @@
 CHAPTER IV PRINCIPLES OF DIVINE HEALING.
-# 第四章 神癒の諸原理
+# 第四章　神癒の諸原理
 
 There are certain principles underlying all the teachings of the Holy Scriptures with respect to healing; which it is important to understand and classify and which, when rightly understood, are most helpful to intelligent faith.
 聖書全体の教えに基づいた神癒の原理があります。よく理解し、整理することが大切です。正しく理解するなら、知性的な信仰のために非常に有益です。

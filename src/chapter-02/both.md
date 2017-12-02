@@ -1,4 +1,4 @@
-# 第二章 実践的指導
+# 第二章　実践的指導
 
 CHAPTER II.
 PRACTICAL DIRECTIONS.
