@@ -7,15 +7,15 @@ This little story illustrates several important principles.
 この短い話はいくつもの大切な原理を説明しています。
 
 1 Mere prayer will not heal the sick. These blind men followed Him from the house of Jairus crying, "Have mercy on us." And yet it brought no reply. "I have been praying for my healing for forty years," people sometimes say to us, "and I am no better." Well, little wonder, for if you had prayed in faith you would not have prayed so long.
-（一）　祈るだけで病気が癒されるのではありません。この二人の盲人はヤイロの家からイエスについて来て「私たちをあわれんでください」と叫びました。けれども返事はありませんでした。「私は四十年癒しを求めて祈っていますが、いっこうによくなりません」と言う人がいます。すこし不思議なのですが、もし信仰をもって祈ったのなら、いつまでも長く祈るはずがありません。
+（一）　祈るだけで病気が癒されるのではありません。この二人の盲人はヤイロの家からイエスについて来て「私たちをあわれんでください」と叫びました。けれども、返事はありませんでした。「私は四十年間癒しを求めて祈っていますが、いっこうによくなりません」と言う人がいます。やや不思議なのですが、もし信仰をもって祈ったのなら、いつまでも長く祈るはずがありません。
 
 2 Mere coming into the presence of Christ will not heal us. They came to Him into the house, but still they were not healed. So persons go to meetings, try to get under spiritual influences, and seem to think that those things will bring their blessings. Perhaps they even present themselves definitely to Him for His help and healing, and yet they are no better.
-（二）　キリストの前に来るだけで癒されるのではありません。二人は家までついて行きましたが、まだ癒されませんでした。集会に行って霊的影響を受ければ、それだけで祝福をいただけると思い込んでいる人がいます。確かに主の前に出て助けと癒しを求めてさえいるかもしれませんが、それでもよくなりません。
+（二）　キリストの御前に出るだけで癒されるのではありません。二人は家までついて行きましたが、まだ癒されませんでした。集会に行って霊的影響を受ければ、それだけでもう祝福をいただけると思い込んでいる人がいます。主の御前に出て、あるいは助けと癒しを求めてさえいるかもしれませんが、それだけでも治りません。
 
 3 The reason is given in the last step brought out here. All this is of no avail unless we definitely believe that He does do for us what we claim. "Believe ye?" He asks and then utters the great law of faith which determines for every one of us the measure of our blessings, "According to your faith be it unto you."
-（三）ここで描写されている最後のステップにその理由が明かされています。自分が求めているものを主が与えてくださるとはっきり信じない限り、このすべては手に入りません。「あなたは信じるか」。主は尋ね、それから私たち一人ひとりの祝福の量りを決定する信仰の偉大な法則を口にします。「あなたがたの信仰のとおりになれ」。
+（三）　この話の最後にその理由が明かされています。自分が求めているものを主が必ず与えてくださると信じない限り、癒しに届きません。「あなたは信じるか」。主は尋ねられました。ことばを続けて、私たち一人ひとりが祝福をいただけるか否かを決定している重要な信仰の法則を述べられます。「あなたがたの信仰のとおりになれ」。
 Then His touch brings sight and healing, and they go forth into the glorious light of day. There is a secret in everything; there is a secret spring or number by which the safe can be unlocked. There is a secret way by which that paper can be brought before the Government.
-それから主が触れると、癒されて見えるようになりました。二人は輝かしい日の光を見られるようになりました。ここに秘訣があります。鍵を開けるための秘密のばね、あるいは数字です。書類？が政府？の前に出される秘密の経路です。
+それから主が触れると、二人は癒され、見えるようになりました。二人は輝かしい太陽の光を見られるようになりました。ここに秘密があります。鍵を開けるための秘密のばね、あるいは数字です。嘆願書が政府に届くための秘密の経路です。
 There is a secret by which nature's mighty forces can be harnessed and used. And there is a secret which opens heaven-commands all the forces and resources of the throne. It is not agonizing prayer; it is not much labor; it is simply this: "According to your faith be it unto you."
 自然の強力な力を利用するための秘密です。天の指令を開いて王座の力と資源を出す秘密です。それは懇願の祈りではありません。労力のかかるものではありません。シンプルにこういうことです。「あなたの信仰のとおりにあなたの身になれ」。
 
@@ -23,28 +23,28 @@ THE SYRO-PHENICIAN WOMAN. Matt. xv. 21.
 ## ツロ・フェニキヤの女
 
 1 This was another example of faith where there was little light or opportunity. It is doubtful if this woman had ever heard a promise or a passage of Scripture, or seen an inspired teacher in all her life. She belonged to an alien and accursed race, and everything was against her. And when she came to Jesus, He seemed against her, too. To her pitiful cry tor help He answered her not a word.
-（一）　これはまた別の、機会も光もほとんどない場所での信仰の例です。この女がこれまで聖書のみことばや約束を聞いたことがあったり、霊感を受けた教師に教えられたりしたというのは考えにくいことです。女は異邦人でのけものにされており全てが彼女に反対していました。そしてイエスのところに来たとき、イエスも彼女を邪険に扱いました。哀れに助けを求めて叫んでもイエスはひと言もお答えになりませんでした。
+（一）　また別の、好機も光もほとんどない場所での信仰の例です。この女がこれまで聖書のみことばや約束を聞いたことがあったとか、霊感を受けた教師に教えられたとかというのは考えにくいことです。女は異邦人であり、鼻つまみ者であり、誰も味方がありませんでした。イエスのところに来たとき、イエスも女を邪険に扱いました。哀れに助けを求めて叫んでも、イエスはひと言もお答えになりませんでした。
 To his disciples' appeal to send her away, that is to grant her request and dismiss her, He replies in language which seemed imperatively to exclude her from any right to His mercy. And when at last she came to His very feet and implored His help, He answered in language so harsh and repelling that it seemed like courting insult to approach Him again.
-弟子たちは女を帰したがっていました。それは女の願いを聞き入れて追い払ってほしいという意味でしたが、イエスのお答えは女をあわれみを受ける権利から断固として除外しているように思えるものでした。女がついにイエスの足元にまで来て懇願したとき、イエスが答えたことばは非常に厳しく追い払うようなもので、二度と近づきたくなくなるような侮辱的なものでした。
+弟子たちは女を帰したがっていました。それは女の願いを聞き入れて追い払ってほしいという意味でしたが、イエスのお答えは、女をあわれみを受ける権利から完全に除外していると思えるものでした。女がついにイエスの足元にまで来て懇願したとき、イエスがお答えになったことばは非常に厳しく、追い払うようなもので、二度と近づきたくなくなるような侮辱的なものでした。
 He had even called her a dog, the type in the East of that which is unclean and unfit for fellowship and yet in the face of all this her faith only grew the stronger, until at last she drew out of His very refusal the argument for her blessing. Difficulties cannot injure true faith. They are the very stimulus of its growth.
-主は女を「犬」とまで呼びました。犬は東洋世界では汚れていて仲間にふさわしくないものの象徴でした。それでも女の信仰はますます強くなって、ついに、取りつく島もない拒絶から祝福についての議論にこぎつけました。本物の信仰は困難でくじけません。困難は信仰を育てる刺激剤です。
+主は女を「犬」とまで呼びました。犬は東洋世界では仲間にふさわしくない汚れたものの象徴でした。それでも女の信仰はますます強くなり、はじめは取りつく島もない拒絶を受けていたのが、ついに祝福についての議論にこぎつけました。本物の信仰は困難にくじけません。困難とは信仰を育てる栄養です。
 
 2 We see the Lord's design in dealing with us, and sometimes seeming to refuse us. All through that struggle He knew and loved her, and saw the trust that would not be denied. And He was but waiting for its full manifestation. Nay, He only tried it because He knew it would stand the trial, and would come forth as gold at last.
-（二）　主が私たちを取り扱うご計画を見ると、ときどき私たちを拒絶しているように思えることがあります。その奮闘をすべて主は知っておられ、また彼女を愛しておられ、否定されない信頼を見ています。その完全な現れを待っておられるのです。いえ、信仰が試練に耐え、最後には金のように精錬されることを知っておられるがために、試しておられるだけなのです。
+（二）　私たちを取り扱う主のご計画を見ると、ときどき私たちを拒絶しているように思えることがあります。じっさいには、その奮闘すべてを主は知っておられ、また彼女を愛しておられ、否定しようのない信頼を見ておられます。信頼の完全な現れを待っておられるのです。拒絶しているのではなく、信仰が試練に耐え、最後には金のように精錬されることを知っておられるがために、信仰を試しておられるだけなのです。
 So He keeps us at His feet, and even seems to refuse our cry, to call forth all the depths of our trust and earnestness. Another object, too, He had with her. He was bringing her to the death of self and the sense of sin. And when at last she was willing to accept His judgment of her, and take her place as a poor worthless sinner, unworthy of any of His blessings, then she could receive all. Faith is a coming down as well as an ascent, a death as well as a life.
-だから主は私たちを足元に来させ、私たちの叫びを拒んでいるようにさえ思えますが、私たちの信仰と熱意の深さを呼び覚ますためです。また、別の目的が主にはありました。主は彼女を自己の死と罪の感覚に促していました。そしてついに女が主の裁きを進んで受け入れ、自分の場所をあわれな価値のない罪人、祝福に値しない者としたとき、すべてを受け取ることができました。信仰はアセントのように降り、死がいのちのように？？
+主は私たちを足元に来させ、私たちの叫びを拒んでいるようにさえ思えることがありますが、それは私たちの深い信仰と熱心を呼び覚ますためです。また、このとき別の目的がありました。主は彼女を自己の死と罪を実感するように促しておられました。そして、ついに主の裁きを自分から受け入れ、自分をあわれな価値のない罪人、祝福に値しない者と認めたとき、女はすべてを受け取ることができました。信仰は上に昇ることであると同時に下にくだることでもあり、いのちであると同時に死でもあります。
 
 3 Her great faith consisted not only in her persistency, in holding on until the last in importunate pleading, but in its ingenuity in finding some ground on which to plead and claim the blessing. Faith is a process of logic, an arguing our case with God, and it is always looking for something to rest upon. Her heart seemed to lean at first upon His grace and love as she somehow felt it instinctively.
-（三）　女の信仰の素晴らしいところは、最後までしつこく願い求め続けた粘り強さだけはありません。祝福を願い求め、自分のものにするための根拠を見出すために知恵を絞りました。信仰は論理的なプロセスです。私たちのことを神と議論し、根拠となるものをいつも探しています。女の心は最初、神の恵みと愛に、いくらかそれを本能的に感じていたために、向かっているようでした。
+（三）　女の信仰の素晴らしいところに、最後までしつこく願い続けた粘り強さがありますが、それだけはありません。祝福を願い求め、自分のものにするための根拠を見出すために知恵を絞りました。信仰は論理的なプロセスです。自分自身のことを神と議論し、根拠となるものをつねに探します。女の心ははじめ、本能的にそれとなく感じ取って、神の愛と恵みにより頼んでいるようでした。
 Something told her that that calm, gentle face could not refuse her. But still she had no word from Him. One little word only, one whisper, one faint concession would do her. But he had spoken nothing but hard, inevitable words of exclusion, exclusion based upon the great principles and limitations of His coming, principles that seemed to make it wrong for Him to help her.
-何かが女に、その静かな優しい顔立ちが女を拒まないと教えてくれました。しかし、いまだ主からおことばをいただけません。ひとつのほんのひとこと、ささやき、かすかな配慮さえいただければそうなったでしょう。けれども、主からいただいたことばは厳しく、排除の不可避なことば、主の来るの大きな原理と制限、主が女を助けるのは間違っていると思えるような原理でした。
+その穏やかな優しい顔立ちが彼女を拒絶するはずがない、と感じていたのでしょう。しかし、いまだ主からおことばをいただけません。ほんのひとこと、ささやき、かすかな配慮さえいただければ十分でした。けれども、主からいただいたのは、排除されたとしか受け取りようのない厳しいことばでした。主が来てくださるには原理原則と制限条件があって、その原理からすると主が女を助けるのはお門違いであると思われました。
 At last He speaks a word that seems to close the door for ever. Not only a Gentile, but a dog. It is not meet. How can she surmount that? Wonderful! That becomes the very bridge on which she crosses the Jordan. A dog-that gives her a place. A dog-well, even a dog has some rights. She will claim hers. Only a crumb.
-やっと主がおことばをくださったと思ったら、永遠に扉が閉め切られたかのようでした。異邦人どころか、犬とまで言われました。恵みを受けるにふさわしくないということです。どこに突破口を見出せるでしょうか。不思議なものです！　これがまさしくヨルダン川を渡る橋となったのです。犬ーーここに入り込む隙間がありました。そうです、犬にさえいくらかの権利があります。女はパンくずという自分の権利を求めました。
+やっと主がおことばをくださったと思ったら、永遠に扉が閉め切られたかのようでした。異邦人どころか、犬とまで言われて。恵みを受けるにふさわしくないということです。どこに突破口を見出せるでしょうか。不思議なものです！　これがまさしくヨルダン川を渡る橋となったのです。犬――ここに入り込む隙間がありました。そうです、犬にさえいくらかの権利があります。女はパンくずという自分の権利を求めました。
 This thing she asks is but a crumb to Him, so great that mighty deeds of power and love drop from His fingers like morsels, but oh, so much to her! Lord, I accept it. I lie down at Thy feet, at Thy children's feet; I ask not their fare, but this which is but their leaving; this which will not diminish aught for them; this which even now they in yonder Galilee have had to the surfeit, until they have refused to take more--this I humbly claim for myself and child, and Thou canst not say me nay.
-女が求めるものは主にとってはパンくずに過ぎません。主の指からこぼれおちる小さな恵みが、力と愛をもって絶大な効力を発揮するため、女には十分過ぎるほどでした！　主よ、私は受け入れます。あなたの足元に、あなたの子供たちの足元に身を置きます。子供たちの食事は求めません。ただ残り物をください。子供たちの食べる分は減りません。遥かガリラヤの子供たちまで、もうこれ以上食べられないくらいお腹いっぱい食べてから、余った分をください。これが卑しく私が自分と娘のために求めるものです。あなたは拒むことはできません。
+女が求めたものは、主にとってパンくずに過ぎません。主の指からこぼれおちる小さな恵みが、力と愛をもって絶大な効力を発揮するため、女には十分過ぎるほどでした！　主よ、私は受け入れます。あなたの足元に、あなたの子供たちの足元に身を置きます。子供たちの食事は求めません。ただ残り物をください。子供たちの食べる分は減りません。遥かガリラヤの子供たちまで、もうこれ以上食べられないくらいお腹いっぱい食べてから、余った分をください。これが卑しく私が自分と娘のために求めるものです。あなたは拒むことができません。
 
 4 No. He could not. Filled with love and wonder, He answers: "Oh woman, great is thy faith; be it unto thee even as thou wilt." And the mighty deed was done. "As thou wilt." Here, again, we have the same element of decision, of fixed and concentrated will which is essential to all strong faith and action. It was the same will, in the negative form, as "I will not" which overcame at Peniel sixteen centuries before; and these two cases, both for a temporal deliverance, are companion pictures of overcoming faith.
-（四）　主は拒まれませんでした。愛と驚きに満ちて、こう答えられました。「そのとき、イエスは彼女に答えて言われた。「ああ、あなたの信仰はりっぱです。その願いどおりになるように」（二八）。このとき、力ある御業がなされました。「その願い（意志）通りに」。ここでも、決意、確固たる集中した意志という要素が、強い信仰と行動の本質として示されています。同じ意志が、否定形の「させません」ではありますが、さかのぼること十六世紀前のペニエルでの勝利をもたらしました（訳注：創世記三二・二六でのヤコブの格闘）。この二つの事例は両方とも世俗的な解放を求めていますが、勝利する信仰の姉妹写真？です。
+（四）　主は拒まれませんでした。愛と驚きに満ちて、こう答えられました。イエスはお答えになりました。「ああ、あなたの信仰はりっぱです。その願いどおりになるように」（二八）。このとき、力ある御業がなされました。「その願い（意志）通りに」。ここでも、決意、確固たる意志という要素が、強い信仰と行動の本質として示されています。同じ意志が、否定形の「させません」ではありますが、さかのぼること十六世紀前のペニエルでの勝利をもたらしました（訳注：創世記三二・二六でのヤコブの格闘）。この二つの事例では両方とも世俗的な解放を求めていますが、勝利する信仰はどういうものかを教えてくれる青写真です。
 
 THE DEMONIAC CHILD. Matt. xvii. 14.
 ## 悪霊につかれた子供（マタイ一七章一四節）
