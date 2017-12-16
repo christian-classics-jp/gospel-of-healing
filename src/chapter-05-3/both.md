@@ -125,6 +125,7 @@ All Lydda and Saron saw it, and turned to the Lord. The true effect of a full Go
 
 THE LAME MAN AT LYSTRA. Acts xiv. 10.
 ## ルステラでの足のなえた男（使徒一五章一〇節）
+
 This is one of the most instructive cases of healing in the Bible.
 これは聖書にある癒しの事例の中で最も示唆に富むもののひとつです。
 
