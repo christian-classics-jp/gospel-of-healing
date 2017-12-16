@@ -103,19 +103,17 @@ There are times when we want more than mercy and gentleness, and the whole spiri
 We can speak it again, and lo, the poison tree of sickness is withered, and begins to dry up from the root. And although leaves and branches may for a while retain their form and color, we know that the death-blow has been struck at the root, and the real work is done. The secret of all is this: "Have the Faith of God." The marginal reading is as much higher than the text as heaven is above the earth. The faith of God is as different from faith in God as Christ's faith is from that of the Disciples who were laboring with the demoniac boy. Jesus does mean to teach us that no less than such a faith as His own will do these things, and that we can have it, and must take it.
 私たちがまた話すと、見よ、病気の毒の木が枯れ、根から枯れ上がります。葉と枝がしばらくの間その形と色を保っているとしても、根に死の一撃が加えられている以上、本当の仕事は終わったことを私たちは知っています。秘訣はこうです。「神の信仰を持ちなさい」。天が地よりも高いように、欄外の註釈が本文よりも高いことを述べています。神の信仰は、神を信じる信仰とは異なります。キリストの信仰は弟子たちの信仰とは異なります。弟子たちは悪霊につかれた子供が手に負えなかったのですから。イエスはまさしくご自分の信仰と同じ信仰を持つことを教えています。私たちは神の信仰を持つことができますし、持たなければなりません。
 
---- ココマデ
-
 THE LAME MAN AT THE BEAUTIFUL GATE. Acts iii. 10.
 ## 美しの門の足のなえた男（使徒三章一〇節）
 
 The first miracle of the Holy Ghost after Christ's ascension is marked by the most emphatic recognition of the name of Jesus only as the source of power in its performance, and the most distinct repudiation of all human power or glory in it. The Apostles distinctly use that Name as their first word to the man, and when the people come crowding around them, and the rulers summon them before them, they again and again disavow any part in it, further than merely to represent the Mighty Name and power of Him who had been crucified by the men before them.
-キリストの昇天後、聖霊によるいちばん初めの奇跡は、イエスの御名が実効性ある力の源であることを強い印象をもって教えてくれます。その力は人間的な力や栄光とは一線を画しています。使徒たちがこの男に語りかけた第一声がその御名でした。それから人々が群がっても、支配者が裁判の場に呼び出しても、使徒たちは一度もその御名を否認せず、そればかりか十字架にかけられた方の力ある御名と権威を人々の前で堂々と言い表しました。
+キリストの昇天後、聖霊によるいちばん初めの奇跡は、イエスの御名が実効性ある力の源であることを深い印象をもって教えてくれます。その力は人間的な力や栄光とは一線を画しています。使徒たちがこの男に語りかけた第一声がその御名でした。それから人々が群がっても、支配者が裁判の場に呼び出しても、使徒たちは一度もその御名を否認せず、そればかりか十字架にかけられた方の力ある御名と権威を人々の前で堂々と言い表しました。
 It is not now a present, but an absent Lord, represented by His ministers and His Name. Again the very faith through which the miracle had been performed and received was as distinctly disavowed, as in any sense their own will-power, or the man's, for they distinctly say, "Yea, the faith which is by Him hath made this man stand before you whole." So that both the faith and the power are simply Jesus Himself working and believing in us.
-その働きとその御名によって言い表されているのは、今は地上におられない主です。またここでも、奇跡がそれによって行なわれ、受け取られたところの信仰こそが、いかなる意味でも自分自身の意志の力とか人間的な力ではない、と明確に否定されています。使徒たちははっきりと言いました。「そうです、この方によって与えられる信仰が、あなたがたの目の前にいるこの男を立たせたのです」。そのため、信仰と力がただ私たちの内に働くイエス自身の力と信仰であることがわかります。
+その働きとその御名によって言い表されている方は、今は地上におられない主です。またここでも、奇跡がそれによって行なわれ、受け取られたところの信仰は、いかなる意味でも自分自身の意志の力とか人間的な力ではない、と明確に否定されています。使徒たちはきっぱりと言いました。「そうです、この方によって与えられる信仰が、あなたがたの目の前にいるこの男を立たせたのです」。そのため、信仰と力はひとえに私たちの内に働くイエス自身の力と信仰であることがわかります。
 Again the miracle itself is only valued as a testimony for Jesus, and an occasion for more widely and effectually spreading His word. They do not wait to wonder over it. They do not let it monopolize their attention, but they quietly press on with their greater work, the preaching of the Gospel. The healing of the sick is simply accessory to the great and the whole work of the Gospel, and ought always to be associated with it.
-また、奇跡そのものはイエスを証するものとしての価値しかありません。さらなる広く効果的に主のことばが広がるための機会とするためです。人々はそれを驚く？ことを待ちません？？。人々は奇跡そのものにだけ注意しません。でなく、その偉大なわざ、福音の宣教に静かにpress onします。病人の癒しは偉大な福音の働き全体の小さなアクセサリーにすぎません。いつも福音と関連付けられるべきです。
+また、奇跡そのものはイエスを証するものとしての価値しかありません。より広く、より効果的に主のことばが広がるための機会とするためです。使徒たちは奇跡をもてはやして立ち止まったりしません。奇跡をひけらかしたりもしません。そうではなく、さらに偉大な働きである福音宣教を粛々と進めます。病人の癒しは福音という大きな働き全体の小さなアクセサリーにすぎません。いつでも福音と結びついていなければなりません。
 But the lame man was an unanswerable argument for the Gospel, a very buttress in the walls of the young Church. "Seeing the lame man with Peter and John, they could say nothing against it." That is fine. We need such testimonies still. The world, the infidel, and the devil cannot answer them. We have seen the proudest infidel put to shame by a poor woman coming up before the people who knew her, and telling him how God had made her whole.
-けれども、足のなえた男は福音の反論しようのない論拠となり、若き教会の壁の支えとなりました。「ペテロとヨハネと一緒にいる足のなえた男を見て、彼らは何も反対できなかった」。fineです。現在でもそのような証が必要です。世、不信者、悪魔はそれに反論できません。最も誇っている不信仰者がみすぼらしい女性が来て彼女を知る人々の前で彼にいかに神が健康にしてくださったかを話して恥じ入ったのを見てきました。
+けれども、足のなえた男は若き教会にとって否定しようのない福音の論拠となり、教会の壁の支えとなりました。「足のなえた男がペテロとヨハネと一緒にいるのを見て、彼らは反論できなかった」。これが模範です。現在でもそのような証が必要です。世も、不信者も、悪魔も反論できません。みすぼらしい女性が来て、自分をよく知る人々の前で、いかに神が病気を癒してくださったかを堂々と話すと、最もプライドの高い不信者が恥じ入るといったことを、私たちはたびたび見てきました。
 
 ENEAS AT LYDDA. Acts ix. 34.
 ## ルダのアイネヤ（使徒九章三四節）
