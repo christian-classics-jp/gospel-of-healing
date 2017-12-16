@@ -119,29 +119,29 @@ ENEAS AT LYDDA. Acts ix. 34.
 ## ルダのアイネヤ（使徒九章三四節）
 
 The miracle, by the hands of Peter, has the same features. First, Peter is most careful to recognize only the Master's Power and Name. "Aeneas, Jesus Christ maketh thee whole." Peter is wholly out of sight, and ever must be. Next, the effect of it is to bring men to God; not to set them wondering, but to set them repenting.
-この奇跡はペテロの手によるもので、同じ特徴があります。まず、ペテロは主の力と御名だけを見つめるよう細心の注意を払いました。「アイネヤ。イエス・キリストがあなたをいやしてくださるのです」。ペテロ自身は視界の外に出ていました。そうでなければなりません。次に、その効果は男が神に向かうことでした。人々を驚かせるのではなく、悔い改めさせることが目的でした。
+この奇跡はペテロの手によるもので、先の例と同じ特徴があります。まず、ペテロは主の力と御名だけを見つめるよう細心の注意を払いました。「アイネヤ。イエス・キリストがあなたをいやしてくださるのです」。ペテロ自身は視界の外に出ていました。そうでなければなりません。次に、その効果は男が神に向かうことでした。人々を驚かせるのではなく、悔い改めさせることが目的でした。
 All Lydda and Saron saw it, and turned to the Lord. The true effect of a full Gospel of supernatural power and might is always spiritual results, and the salvation of men. And through these mighty signs and wonders will come, Joel tells us, the last great outpouring of the Spirit upon the world, and the awakening of men before the second coming of the Lord.
-ルダとサロンに住む人がみなそれを見て、神に立ち返りました。十全な福音による超自然的な力と権威の本当の効果はいつも、超自然的な結果、つまり人の救いです。これらの力あるしるしと不思議を通じて、ヨエルが告げたように、終わりの日に世に御霊が大きく注がれ、主の再臨の前に人々の覚醒があります。
+ルダとサロンに住む人がみなそれを見て、神に立ち返りました。十全な福音による超自然的な力と権威がもたらす本当の効果というものはいつでも、超自然的な結果、つまり人の救いです。このような力あるしるしと不思議を通じて、ヨエルが預言したように、終わりの日に御霊があふれんばかりに世に注がれ、主の再臨の前に人々の覚醒が起こります。
 
 THE LAME MAN AT LYSTRA. Acts xiv. 10.
 ## ルステラでの足のなえた男（使徒一五章一〇節）
 This is one of the most instructive cases of healing in the Bible.
-これは聖書中最も有益な癒しの事例のひとつです。
+これは聖書にある癒しの事例の中で最も示唆に富むもののひとつです。
 
 1 This was a purely heathen community and audience. They had no preconceived prejudices.
-（一）　これは純粋に異邦人の共同体と聴衆でした。彼らには固定観念や先入観がありませんでした。
+（一）　群衆は異邦人ばかりでした。彼らには固定観念や先入観がありませんでした。
 
 2 Paul preached to them "the Gospel." No doubt he told them of the healing and redeeming work of Jesus.
-(二）　パウロは「福音」を宣べ伝えました。疑いなくパウロはイエスの癒しと贖いのみわざを伝えたはずです。
+(二）　パウロは「福音」を宣べ伝えました。疑いなくイエスの癒しと贖いのみわざを伝えたはずです。
 
 3 As he preached he perceived the light of faith and life irradiating the face of one of his most helpless hearers. We can see these things in men. God gives the spiritual mind instincts of discernment.
-（三）　パウロが宣べ伝えると、信仰といのちの光が最も無力な聴衆のひとりの顔が照りかがやくのがわかりました。私たちはこういうことを人々の中に見ることができます。神は見分けの霊的な心の本能を与えています。
+（三）　パウロが宣べ伝えると、群衆に混じっていた無力のひとりの人に信仰といのちの光が注がれ、顔が照りかがやくのがわかりました。私たちはこういうことを人々の中に見ることができます。神は霊的な見分けの心を人に備えてくださっています。
 
 4 Paul evidently would not have gone farther unless he had "perceived" that this man had "faith to be healed." It is no use trying to push men on Christ who have not hands to touch Him. It was not Paul's faith that healed the man, but his own.
-(四）　パウロは明らかに慎重で、この男が「癒される信仰」を持っているとわかるまで、先に進みませんでした。キリストに触れる手を持たない者をキリストのもとに押し出しても無意味です。男を癒すのはパウロの信仰ではなく、本人の信仰なのですから。
+(四）　はっきり読み取れるとおり、パウロは慎重でした。この男が「癒される信仰」を持っているとわかるまで、次に進みませんでした。触れる手を持たざる者をキリストのもとに押し出しても仕方ありません。男を癒すのはパウロの信仰ではなく、本人の信仰なのですから。
 
 5 But he must be helped to act it out. "Stand on thy feet," cries Paul; and as he rises and attempts in a hobbling, halting way, to stand, he cries "UPRIGHT," for this is the force of the word (see Young's translation). There must be no halting and half-believing. A bold step like this must be carried through audaciously. And lo! the man responds to the brave words, and now not only stands up, but begins to leap and walk. By works his faith is made perfect.
-（五）　しかし、信仰を行動で表すために、援助が必要でした。「自分の足で立ちなさい」とパウロは大声で言いました。そして男が起き上がり、ぎこちなくためらいがちに立とうとすると、パウロは「**まっすぐに**」と言いました。これがことばの力です（ヤング訳参照）。信仰にはためらいや半端がありません。このような大胆な一歩でなければなりません。見よ！　男は勇気あることばに応え、今や立ち上がっただけでなぬ、飛び跳ねて歩き出します。行動によって信仰が完全なものになりました。
+（五）　しかし、信仰を行動にするためには援助が必要でした。「自分の足で立ちなさい」とパウロは大声で言いました。男が起き上がり、ぎこちなくためらいがちに立とうとすると、パウロは「**まっすぐに**」と言いました。これがことばの力です（ヤング訳参照）。信仰にはためらいや半端がありません。このような大胆な一歩でなければなりません。見よ！　男は勇気あることばに応え、今や立ち上がっただけでなく、飛び跳ねて歩き出します。行動によって信仰が完全なものになりました。
 
 6 The effect of the miracle and the humble spirit of Paul need no additional word. God was glorified, and Paul gave Him all the glory.
 （六）　奇跡とパウロの謙遜な霊の影響は付言を必要としません。神がたたえられ、パウロは神に栄光を返しました。
