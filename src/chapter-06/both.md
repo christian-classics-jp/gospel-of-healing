@@ -11,30 +11,32 @@ For more than twenty years I was a sufferer from many physical infirmities and d
 といいますのも、私は二十年間以上もいろいろな肉体的苦痛や病気に苦しんできたからです。十四歳の時のことですが、勉強のために無理な生活をしていると、神経衰弱を起こして倒れてしまいました。大学進学のために何ヶ月も勉強することはできなくなり、医者には本を見ることさえ禁止されました。この時には自分は死ぬのではないかと感じましたが、永遠とも思える長い時間を耐えて、私はついに自分を神に捧げました。大学を卒業してから、二十一歳で一念発起して大きな町の教会の牧師になりました。この時も仕事に没頭しすぎて、一年たらずで心臓病で倒れました。復帰するまでに何ヶ月も休養しなければなりませんでしたが、この時も死ぬのではないかと思いました。けれども、少しずつ回復し持ち直してきました。その後数年間は、薬を常に持ち歩いて予防を心がけながら仕事をしました。いつもポケットにアンモニアのびんを入れていました。びんを持たなければ不安で発作を起こしたにちがいありません。なだらかな坂道や階段を登るときにも窒息しそうなつらい息切れをたびたび起こしましたが、最後の手段にびんがあると考えることで落ち着くのでした。ヨーロッパにいた頃、スウェーデンのリギ山に登ったときのことをよく覚えています。電車に乗っていました。フローレンス市内の高い鐘塔に登ろうとしたのですが、途中で急に発作が起きて窒息しそうになりました。二度とこういう危険な場所には行かないと心に決めました。神がご存知ですが、働き始めた頃の私には何百回とこういうことがありました。壇上で説教していると礼拝の最中に倒れそうになるし、墓地で奉仕をしていると開いた墓に落ちそうになったものです。
 
 Several years later two other collapses came in my health, of long duration, and again and again during these terrible seasons did it seem that the last drops of life were ebbing out, and a frail thread held the vital chain from snapping forever.
-数年後までにさらに二回、倒れたことがありました。何ヶ月も寝たきりになっていました。何度もそういうことがあったものですから、私はもういのちの水滴がとぎれかけていると感じていました。か細い糸が生命の綱につながっているものの、いつかぷつりと切れて永遠に戻らないのではないか、と。
+それから数年間でさらに二回、倒れました。何ヶ月も寝たきりになることもありました。何度もそういうことが重なったものですから、もう私はいのちの水滴がとぎれかけていると感じていました。か細い糸が生命の綱になんとかつながっているものの、いつかぷつりと切れて永遠に戻らないのではないか、と。
 
 I struggled through my work most of the time and often was considered a hard and successful worker, but my good people always thought me so "delicate," and I grew so weary of being sympathized with every time they met me. Many a neglected visit was apologized for by these good people because I was "not strong." When at last I took the Lord for my Healer I remember I was so tired of this constant pity that I just asked the Lord to make me so well that my people would never sympathize with me again, but that I should be to them a continual wonder through the strength and support of God. I think He has fulfilled this prayer, for they have often wondered these past six or seven years at the work I have been permitted to do in His name.
-たいていは懸命に働いて仕事をやり通していたので、周りからは真面目で立派な働き者だと思われていましたが、いつも私は「デリケートな人」と気にかけてもらっていて、会う人ごとに同情されていたので、すっかり嫌気がさしていました。せっかく来てもらっても、私が「強くない」ために何もできず、気の優しい人たちが謝罪？することがよくありました。紆余曲折のすえに主を私の癒し主として受け入れたときのことを覚えています。いつもそんなふうに同情されるのに疲れ切っていた私は、私に関わる人たちがもう二度と私をあわれまずに済むように、それだけでなく神の強さと支えによって人々にとって私が継続的な不思議となるように、私を治してくださいと主にお願いしました。主はこの祈りを聞いてくださったと思います。周りの人たちはこの六、七年にわたって私が主の御名によって働くことが許されていることにしばしば驚いているからです。
+たいていは懸命に働いて仕事をやり通していたので、周りからは真面目で立派な働き者と思われていましたが、いつも「デリケートな人」と気にかけてもらっていて、会う人ごとに同情されていたので、すっかり嫌気がさしていました。せっかく来てもらっても、私が「強くない」ために何もできず、申し訳ないことに帰ってもらうこともありました。紆余曲折のすえに、主を私の癒し主として受け入れたときのことを覚えています。いつもそんなふうに同情されるのに疲れ切っていた私は、この体を治してくださいと主にお願いしました。私に関わる人たちがもう二度と私をあわれまずに済むように、そればかりか私自身が神の強さと支えによって生かされている証となって、神のために働き続けられるようにと祈りました。主はこの祈りを聞いてくださったと思います。周りの人たちはその後六、七年にわたって現在まで、私が主の御名によって働くことが許されていることにしばしば驚いているからです。
 
 It usually took me till Wednesday to get over the effects of the Sabbath sermon, and about Thursday I was ready to begin to get ready for the next Sabbath. Thanks be to God, the first three years after I was healed I preached more than a thousand sermons, and held sometimes more than twenty meetings in one week, and do not remember once feeling exhausted with a single service all the time.
-それまでは日曜礼拝が終わると水曜日までは疲労困憊で動けず、木曜日ごろから次の日曜礼拝の用意をし始めるのが普通でした。神に感謝します。癒されてからの三年間、私は千回以上説教をし、時には週に二十回以上集会を開くこともしましたが、一度も疲労困憊した記憶がありません。
+それまでは安息日礼拝が終わると水曜日までは疲労困憊で動けず、木曜日ごろから次回の礼拝の用意をし始めるのが普通でした。神に感謝します。癒されてからの三年間、私は千回以上説教をし、時には週に二十回以上集会を開くこともありましたが、一度も疲労困憊した記憶がありません。
 
 A few months before I took Christ as my Healer, a prominent physician in New York insisted on speaking to me on the subject of my health, and told me that I had not constitutional strength enough left to last more than a few months. He required my taking immediate measures for the preservation of my life and usefulness. During the summer that followed I went for a time to Saratoga Springs, and while there, one Sabbath afternoon, I wandered out to the Indian camp ground, where the jubilee singers were leading the music in an evangelistic service. I was deeply depressed, and all things in life looked dark and withered. Suddenly, I heard the chorus:
-キリストを私の癒し主として受け入れる数ヶ月前のことですが、ニューヨークの著名な医師がわたしの健康について話してくれました。彼によると、私は体質的に弱く、もうあと数ヶ月しか生きられないとのことでした。延命のためにただちに処置を講ずるべきだと言いました。夏になると私はサラトガ・スプリングズに行きました。そこである安息日の午後に、ふらふらとインディアンキャンプ場におもむき、そのめヨベル？歌手が福音的なサービスで音楽をリードしていました。私は深く落胆し、人生のすべてが暗く枯れたように見えました。突如として、コーラスが聞こえました。
+キリストを私の癒し主として受け入れるより数ヶ月前のことですが、ニューヨークの著名な医師が私の健康を診断してくれました。医師によると、私は体質的に弱く、余命数ヶ月しか残されていないとのことでした。延命のためにただちに処置を講ずるべきだと言いました。その夏、私はサラトガ・スプリングズに行きました。そこである安息日の午後に、ふらふらとインディアンキャンプ場におもむくと、そこで宣教集会が開かれていて、ゴスペル歌手が音楽をリードしていました。そのときの私は深く落胆していて、人生が真っ暗で枯れ果ててしまったように感じられました。歩いていると突然、コーラスが耳に飛び込んできました。
 
 "My Jesus is the Lord of Lords;
 No man can work like Him."
-「私のイエスは主の主。誰もこの方のような御業はできない」。
+私のイエスは主の主<br/>
+誰もこの方のような御業はできない
 
 Again and again, in the deep bass notes and the higher tones, that seemed to soar to heaven, they sang it over and over again:
-何度も何度も、低音と高音が調和して、天に届きそうな歌声で、繰り返し歌いました。
+コーラスは何度も何度も繰り返されました。低音と高音が調和していて、天に届きそうな歌声でした。
 
 "No man can work like Him,
 No man can work like Him.".
-「誰もこの方のような御業はできない。誰もこの方のような御業はできない」。
+誰もこの方のような御業はできない<br/>
+誰もこの方のような御業はできない
 
 It fell upon me like a spell. It fascinated me. It seemed like a voice from heaven. It possessed my whole being. I took him also to be my Lord of Lords, and to work for me. I knew not how much it all meant; but I took him in the dark, and went forth from that rude, old-fashioned service, remembering nothing else, but strangely lifted up forever more.
-まるで私にかたりかけているようでした。心が釘付けになりました。天から声が聞こえているようでした。それが私のすべてを捉えました。私はイエスを主の主として、私のために御業を行なってくださる方として受け入れました。それがどういうことなのか、まだよくわかっていませんでしたが、暗闇の中でそれをとらえ、あのルードで時代遅れのサービスから抜け出て、他には覚えていませんが、奇妙に持ち上げられた？永遠に、もっと…。
+まるで私に語りかけているようでした。心が釘付けになりました。天から声が聞こえているようでした。その声が私のすべてを捉えました。私はイエスを主の主として、私のために御業を行なってくださる方として受け入れました。それがどういう意味なのか、まだよくわかっていませんでしたが、暗闇の中でキリストを必死につかみました。その上品とは言えない流行遅れの集会から出てからのことはよく覚えていません。ただ奇妙な高揚感がずっと続いていました。
 
 A few weeks later I went with my family to Old Orchard Beach, Ma. I went chiefly to enjoy the delightful air of that loveliest of all ocean beaches. I lived on the very seashore while there, and went occasionally to the meetings on the camp ground, but only once or twice took part in them, and had not, up to that time, committed myself in any full sense to the truth or experience of Divine. Healing.
 
